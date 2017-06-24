@@ -68,4 +68,33 @@ Florenz Ziegfeld, the most spectacular producer who ever dazzled Broadway, gaine
 
 We nourish the bodies of our children and friends and employees, but how seldom do we nourish their selfesteem? We provide them with roast beef and potatoes to build energy, but we neglect to give them kind words of appreciation that would sing in their memories for years like the music of the morning stars.
 
+Of course flattery seldom works with discerning people. It is shallow, selfish and insincere. It ought to fail and it usually does. True, some people are so hungry, so thirsty, for appreciation that they will swallow anything, just as a starving man will eat grass and fishworms. In the long run, flattery will do you more harm than good. Flattery is counterfeit, and like counterfeit money, it will eventually get you into trouble if you pass it to someone else.
+
+The difference between appreciation and flattery? That is simple. One is sincere and the other insincere. One comes from the heart out; the other from the teeth out. One is unselfish; the other selfish. One is universally admired; the other universally condemned.
+
+When we are not engaged in thinking about some definite problem, we usually spend about 95 percent of our time thinking about ourselves. Now, if we stop thinking about ourselves for a while and begin to think of the other person's good points, we won't have to resort to flattery so cheap and false that it can be spotted almost before it is out of the mouth.
+
+Nothing pleases children more than this kind of parental interest and approval.
+
+Every minister, lecturer and public speaker knows the discouragement of pouring himself or herself out to an audience and not receiving a single ripple of appreciative comment. What applies to professionals applies doubly to workers in offices, shops and factories and our families and friends. In our interpersonal relations we should never forget that all our associates are human beings and hunger for appreciation. It is the legal tender that all souls enjoy.
+
+I shall pass this way but once; any good, therefore, that I can do or any kindness that I can show to any human being, let me do it now. Let me not defer nor neglect it, for I shall not pass this way again.Emerson said: "Every man I meet is my superior in some way, In that, I learn of him." If that was true of Emerson, isn't it likely to be a thousand times more true of you and me? Let's cease thinking of our accomplishments, our wants. Let's try to figure out the other person's good points. Then forget flattery. Give honest, sincere appreciation. Be "hearty in your approbation and lavish in your praise," and people will cherish your words and treasure them and repeat them over a lifetime - repeat them years after you have forgotten them.
+
+__ Principle 2 Give honest and sincere appreciation. __
+
+## 3 - "He Who Can Do This Has The Whole World With Him. He Who Cannot Walks A Lonely Way"
+So the only way on earth to influence other people is to talk about what they want and show them how to get it.Remember that tomorrow when you are trying to get somebody to do something. If, for example, you don't want your children to smoke, don't preach at them, and don't talk about what you want; but show them that cigarettes may keep them from making the basketball team or winning the hundred-yard dash.
+
+Every act you have ever performed since the day you were born was performed because you wanted something. How about the time you gave a large contribution to the Red Cross? Yes, that is no exception to the rule. You gave the Red Cross the donation because you wanted to lend a helping hand; you wanted to do a beautiful, unselfish, divine act.
+
+Harry A, Overstreet in his illuminating book Influencing Human Behavior said; "Action springs out of what we fundamentally desire ... and the best piece of advice which can be given to would-be persuaders, whether in business, in the home, in the school, in politics, is: First, arouse in the other person an eager want. He who can do this has the whole world with him. He who cannot walks a lonely way."
+
+Here is one of the best bits of advice ever given about the fine art of human relationships. "If there is any one secret of success," said Henry Ford, "it lies in the ability to get the other person's point of view and see things from that person's angle as well as from your own."
+
+
+
+
+
+
+
 
