@@ -91,7 +91,28 @@ Harry A, Overstreet in his illuminating book Influencing Human Behavior said; "A
 
 Here is one of the best bits of advice ever given about the fine art of human relationships. "If there is any one secret of success," said Henry Ford, "it lies in the ability to get the other person's point of view and see things from that person's angle as well as from your own."
 
+Thousands of salespeople are pounding the pavements today, tired, discouraged and underpaid. Why? Because they are always thinking only of what they want. They don't realize that neither you nor I want to buy anything. If we did, we would go out and buy it. But both of us are eternally interested in solving our problems. And if salespeople can show us how their services or merchandise will help us solve our problems, they won't need to sell us. We'll buy. And customers like to feel that they are buying - not being sold.
 
+The world is full of people who are grabbing and self-seeking. So the rare individual who unselfishly tries to serve others has an enormous advantage. He has little competition. Owen D. Young, a noted lawyer and one of America's great business leaders, once said: "People who can put themselves in the place of other people who can understand the workings of their minds, need never worry about what the future has in store for them."
+
+If out of reading this book you get just one thing - an increased tendency to think always in terms of other people's point of view, and see things from their angle - if you get that one thing out of this book, it may easily prove to be one of the building blocks of your career .
+
+Looking at the other person's point of view and arousing in him an eager want for something is not to be construed as manipulating that person so that he will do something that is only for your benefit and his detriment. Each party should gain from the negotiation. 
+
+To repeat Professor Overstreet's wise advice: First, arouse in the other person an eager want He who can do this has the whole world with him. He who cannot walks a lonely way.
+
+William Winter once remarked that "self-expression is the dominant necessity of human nature." Why can't we adapt this same psychology to business dealings? When we have a brilliant idea, instead of making others think it is ours, why not let them cook and stir the idea themselves. They will then regard it as their own; they will like it and maybe eat a couple of helpings of it.
+
+Remember: "First, arouse in the other person an eager want. He who can do this has the whole world with him. He who cannot walks a lonely way."
+
+__ • Principle 3 - Arouse in the other person an eager want. __
+
+> In a Nutshell Fundamental Techniques In Handling People
+• Principle 1 Don't criticize, condemn or complain.
+• Principle 2 Give honest and sincere appreciation.
+• Principle 3 Arouse in the other person an eager want.
+
+# Part Two - Ways To Make People Like You
 
 
 
