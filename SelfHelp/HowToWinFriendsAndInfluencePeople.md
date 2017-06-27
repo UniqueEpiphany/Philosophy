@@ -114,6 +114,12 @@ __ • Principle 3 - Arouse in the other person an eager want. __
 
 # Part Two - Ways To Make People Like You
 
+### 1 Do This And You'll Be Welcome Anywhere
+You knew by some divine instinct that you can make more friends in two months by becoming genuinely interested in other people than you can in two years by trying to get other people interested in you. Let me repeat that. You can make more friends in two months by becoming interested in other people than you can in two years by trying to get other people interested in you.
+
+Alfred Adler, the famous Viennese psychologist, wrote a book entitled What Life Should Mean to You. In that book he says: "It is the individual who is not interested in his fellow men who has the greatest difficulties in life and provides the greatest injury to others. It is from among such individuals that all human failures spring."
+
+
 
 
 
