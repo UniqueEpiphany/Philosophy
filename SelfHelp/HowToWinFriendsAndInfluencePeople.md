@@ -119,9 +119,32 @@ You knew by some divine instinct that you can make more friends in two months by
 
 Alfred Adler, the famous Viennese psychologist, wrote a book entitled What Life Should Mean to You. In that book he says: "It is the individual who is not interested in his fellow men who has the greatest difficulties in life and provides the greatest injury to others. It is from among such individuals that all human failures spring."
 
+A show of interest, as with every other principle of human relations, must be sincere. It must pay off not only for the person showing the interest, but for the person receiving the attention. It is a two-way street-both parties benefit.
+
+__ • Principle 1 Become genuinely interested in other people. __
+
+### 2 - A Simple Way To Make A Good First Impression
+At a dinner party in New York, one of the guests, a woman who had inherited money, was eager to make a pleasing impression on everyone. She had squandered a modest fortune on sables, diamonds and pearls. But she hadn't done anything whatever about her face. It radiated sourness and selfishness. She didn't realize what everyone knows: namely, that the expression one wears on one's face is far more important than the clothes one wears on one's back.
+
+Charles Schwab told me his smile had been worth a million dollars. And he was probably understating the truth. For Schwab's personality, his charm, his ability to make people like him, were almost wholly responsible for his extraordinary success; and one of the most delightful factors in his personality was his captivating smile.
+
+An insincere grin? No. That doesn't fool anybody. We know it is mechanical and we resent it. I am talking about a real smile, a heartwarming smile, a smile that comes from within, the kind of smile that will bring a good price in the marketplace.
+
+Professor James V. McConnell, a psychologist at the University of Michigan, expressed his feelings about a smile. "People who smile," he said, "tend to manage teach and sell more effectively, and to raise happier children. There's far more information in a smile than a frown. That's why encouragement is a much more effective teaching device than punishment."
+
+You don't feel like smiling? Then what? Two things. First, force yourself to smile. If you are alone, force yourself to whistle or hum a tune or sing. Act as if you were already happy, and that will tend to make you happy. Here is the way the psychologist and philosopher William James put it:
+
+"Action seems to follow feeling, but really action and feeling go together; and by regulating the action, which is under the more direct control of the will, we can indirectly regulate the feeling, which is not.
+
+"Thus the sovereign voluntary path to cheerfulness, if our cheerfulness be lost, is to sit up cheerfully and to act and speak as if cheerfulness were already there. ..."
+
+Every body in the world is seeking happiness - and there is one sure way to find it. That is by controlling your thoughts. Happiness doesn't depend on outward conditions. It depends on inner conditions.
 
 
+Peruse this bit of sage advice from the essayist and publisher Elbert Hubbard - but remember, perusing it won't do you any good unless you apply it:
+Whenever you go out-of-doors, draw the chin in, carry the crown of the head high, and fill the lungs to the utmost; drink in the sunshine; greet your friends with a smile, and put soul into every handclasp. Do not fear being misunderstood and do not waste a minute thinking about your enemies. Try to fix firmly in your mind what you would like to do; and then, without veering off direction, you will move straight to the goal. Keep your mind on the great and splendid things you would like to do, and then, as the days go gliding away, you will find yourself unconsciously seizing upon the opportunities that are required for the fulfillment of your desire, just as the coral insect takes from the running tide the element it needs. Picture in your mind the able, earnest, useful person you desire to be, and the thought you hold is hourly transforming you into that particular individual.. . . Thought is supreme. Preserve a right mental attitude - the attitude of courage, frankness, and good cheer. To think rightly is to create. All things come through desire and every sincere prayer is answered. We become like that on which our hearts are fixed. Carry your chin in and the crown of your head high. We are gods in the chrysalis.  
 
+Your smile is a messenger of your good will. Your smile brightens the lives of all who see it. To someone who has seen a dozen people frown, scowl or turn their faces away, your smile is like the sun breaking through the clouds. Especially when that someone is under pressure from his bosses, his customers, his teachers or parents or children, a smile can help him realize that all is not hopeless - that there is joy in the world.
 
 
 
