@@ -146,5 +146,78 @@ Whenever you go out-of-doors, draw the chin in, carry the crown of the head high
 
 Your smile is a messenger of your good will. Your smile brightens the lives of all who see it. To someone who has seen a dozen people frown, scowl or turn their faces away, your smile is like the sun breaking through the clouds. Especially when that someone is under pressure from his bosses, his customers, his teachers or parents or children, a smile can help him realize that all is not hopeless - that there is joy in the world.
 
+__ • Principle 2 - Smile. __
 
+### 3 - If You Don't Do This, You Are Headed For Trouble
+Jim Farley discovered early in life that the average person is more interested in his or her own name than in all the other names on earth put together. Remember that name and call it easily, and you have paid a subtle and very effective compliment. But forget it or misspell it - and you have placed yourself at a sharp disadvantage.
+
+Sometimes it is difficult to remember a name, particularly if it is hard to pronounce. Rather than even try to learn it, many people ignore it or call the person by an easy nickname. 
+
+This policy of remembering and honoring the names of his friends and business associates was one of the secrets of Andrew Carnegie's leadership. He was proud of the fact that he could call many of his factory workers by their first names, and he boasted that while he was personally in charge, no strike ever disturbed his flaming steel mills.
+
+Libraries and museums owe their richest collections to people who cannot bear to think that their names might perish from the memory of the race. The New York Public Library has its Astor and Lenox collections. The Metropolitan Museum perpetuates the names of Benjamin Altman and J. P. Morgan. And nearly every church is beautified by stained-glass windows commemorating the names of their donors. Many of the buildings on the campus of most universities bear the names of donors who contributed large sums of money for this honor.
+
+Most people don't remember names, for the simple reason that they don't take the time and energy necessary to concentrate and repeat and fix names indelibly in their minds. They make excuses for themselves; they are too busy.
+
+Franklin D. Roosevelt knew that one of the simplest, most obvious and most important ways of gaining good will was by remembering names and making people feel important - yet how many of us do it?
+Half the time we are introduced to a stranger, we chat a few minutes and can't even remember his or her name by the time we say goodbye.
+
+One of the first lessons a politician learns is this: "To recall a voter's name is statesmanship. To forget it is oblivion."
+And the ability to remember names is almost as important in business and social contacts as it is in politics.
+
+Napoleon the Third, Emperor of France and nephew of the great Napoleon, boasted that in spite of all his royal duties he could remember the name of every person he met.
+
+His technique? Simple. If he didn't hear the name distinctly, he said, "So sorry. I didn't get the name clearly." Then, if it was an unusual name, he would say, "How is it spelled?"
+
+During the conversation, he took the trouble to repeat the name several times, and tried to associate it in his mind with the person's features, expression and general appearance.
+
+__ Principle 3 - Remember that a person's name is to that person the sweetest and most important sound in any language. __
+
+### 4 - An Easy Way To Become A Good Conversationalist
+That kept her talking for forty-five minutes. She never again asked me where I had been or what I had seen. She didn't want to hear me talk about my travels. All she wanted was an interested listener, so she could expand her ego and tell about where she had been.
+
+Was she unusual? No. Many people are like that.
+
+ told him that I had been immensely entertained and instructed - and I had. I told him I wished I had his knoledge - and I did. I told him that I should love to wander the fields with him - and I have. I told him I must see him again - and I did.
+And so I had him thinking of me as a good conversationalist when, in reality, I had been merely a good listener and had encouraged him to talk.
+
+What is the secret, the mystery, of a successful business interview? Well, according to former Harvard president Charles W. Eliot, "There is no mystery about successful business intercourse. ... Exclusive attention to the person who is speaking to you is very important. Nothing else is so flattering as that."
+
+One of the great listeners of modern times was Sigmund Freud. A man who met Freud described his manner of listening: "It struck me so forcibly that I shall never forget him. He had qualities which I had never seen in any other man. Never had I seen such concentrated attention. There was none of that piercing 'soul penetrating gaze' business. His eyes were mild and genial. His voice was low and kind. His gestures were few. But the attention he gave me, his appreciation of what I said, even when I said it badly, was extraordinary, You've no idea what it meant to be listened to like that."
+
+So if you aspire to be a good conversationalist, be an attentive listener. To be interesting, be interested. Ask questions that other persons will enjoy answering. Encourage them to talk about themselves and their accomplishments.
+
+__ Principle 4 - Be a good listener. Encourage others to talk about themselves. __
+
+### How To Interest People
+Everyone who was ever a guest of Theodore Roosevelt was astonished at the range and diversity of his knowledge. Whether his visitor was a cowboy or a Rough Rider, a New York politician or a diplomat, Roosevelt knew what to say. And how was it done? The answer was simple. Whenever Roosevelt expected a visitor, he sat up late the night before, reading up on the subject in which he knew his guest was particularly interested.
+
+For Roosevelt knew, as all leaders know, that the royal road to a person's heart is to talk about the things he or she treasures most.
+
+__ Principle 5 - Talk in terms of the other person's interests. __
+
+### 6 - How To Make People Like You Instantly
+If we are so contemptibly selfish that we can't radiate a little happiness and pass on a bit of honest appreciation without trying to get something out of the other person in return - if our souls are no bigger than sour crab apples, we shall meet with the failure we so richly deserve. Oh yes, I did want something out of that chap. I wanted something priceless. And I got it. I got the feeling that I had done something for him without his being able to do anything whatever in return for me. That is a feeling that flows and sings in your memory lung after the incident is past.
+
+There is one all-important law of human conduct. If we obey that law, we shall almost never get into trouble. In fact, that law, if obeyed, will bring us countless friends and constant happiness. But the very instant we break the law, we shall get into endless trouble. The law is this: Always make the other person feel important. John Dewey, as we have already noted, said that the desire to be important is the deepest urge in human nature; and William James said: "The deepest principle in human nature is the craving to be appreciated." As I have already pointed out, it is this urge that differentiates us from the animals. It is this urge that has been responsible for civilization itself.
+
+You want the approval of those with whom you come in contact. You want recognition of your true worth. You want a feeling that you are important in your little world. You don't want to listen to cheap, insincere flattery, but you do crave sincere appreciation. You want your friends and associates to be, as Charles Schwab put it, "hearty in their approbation and lavish in their praise." All of us want that.
+
+Such is the power, the stupendous power, of sincere, heartfelt appreciation. Rossetti considered himself important. That is not strange, Almost everyone considers himself important, very important. 
+
+The unvarnished truth is that almost all the people you meet feel themselves superior to you in some way, and a sure way to their hearts is to let them realize in some subtle way that you recognize their importance, and recognize it sincerely.
+
+Remember what Emerson said: "Every man I meet is my superior in some way. In that, I learn of him."
+
+__ Principle 6 - Make the other person feel important-and do it sincerely. __
+
+> In a Nutshell - Six Ways To Make People Like You  
+• Principle 1 - Become genuinely interested in other people.  
+• Principle 2 - Smile.  
+• Principle 3 - Remember that a person's name is to that person the sweetest and most important sound in any language.  
+• Principle 4 - Be a good listener. Encourage others to talk about themselves.  
+• Principle 5 - Talk in terms of the other person's interests.  
+• Principle 6 - Make the other person feel important-and do it sincerely.  
+
+# Part Three - How To Win People To Your Way Of Thinking
 
