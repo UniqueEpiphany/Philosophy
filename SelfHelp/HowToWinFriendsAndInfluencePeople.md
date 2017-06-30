@@ -107,10 +107,10 @@ Remember: "First, arouse in the other person an eager want. He who can do this h
 
 __ • Principle 3 - Arouse in the other person an eager want. __
 
-> In a Nutshell Fundamental Techniques In Handling People
-• Principle 1 Don't criticize, condemn or complain.
-• Principle 2 Give honest and sincere appreciation.
-• Principle 3 Arouse in the other person an eager want.
+> In a Nutshell Fundamental Techniques In Handling People  
+• Principle 1 Don't criticize, condemn or complain.  
+• Principle 2 Give honest and sincere appreciation.  
+• Principle 3 Arouse in the other person an eager want.  
 
 # Part Two - Ways To Make People Like You
 
