@@ -209,7 +209,7 @@ The unvarnished truth is that almost all the people you meet feel themselves sup
 
 Remember what Emerson said: "Every man I meet is my superior in some way. In that, I learn of him."
 
-__ Principle 6 - Make the other person feel important-and do it sincerely. __
+__Principle 6 - Make the other person feel important-and do it sincerely.__
 
 > In a Nutshell - Six Ways To Make People Like You  
 • Principle 1 - Become genuinely interested in other people.  
@@ -221,3 +221,29 @@ __ Principle 6 - Make the other person feel important-and do it sincerely. __
 
 # Part Three - How To Win People To Your Way Of Thinking
 
+__You Can't Win An Argument__
+
+As a result of all this, I have come to the conclusion that there is only one way under high heaven to get the best of an argument - and that is to avoid it. Avoid it as you would avoid rattlesnakes and earthquakes. Nine times out of ten, an argument ends with each of the contestants more firmly convinced than ever that he is absolutely right.
+You can't win an argument. You can't because if you lose it, you lose it; and if you win it, you lose it. Why? Well, suppose you triumph over the other man and shoot his argument full of holes and prove that he is non compos mentis. Then what? You will feel fine. But what about him? You have made him feel inferior. You have hurt his pride. He will resent your triumph. And - A man convinced against his will Is of the same opinion still.
+
+If you argue and rankle and contradict, you may achieve a victory sometimes; but it will be an empty victory because you will never get your opponent's good will.
+
+So figure it out for yourself. Which would you rather have, an academic, theatrical victory or a person's good will? You can seldom have both.Buddha said: "Hatred is never ended by hatred but by love," and a misunderstanding is never ended by an argument but by tact, diplomacy, conciliation and a sympathetic desire to see the other person's viewpoint.
+
+
+Lincoln once reprimanded a young army officer for indulging in a violent controversy with an associate. "No man who is resolved to make the most of himself," said Lincoln, "can spare time for personal contention. Still less can he afford to take the consequences, including the vitiation of his temper and the loss of self-control. Yield larger things to which you show no more than equal rights; and yield lesser ones though clearly your own. Better give your path to a dog than be bitten by him in contesting for the right. Even killing the dog would not cure the bite."
+
+In an article in Bits and Pieces,* some suggestions are made on how to keep a disagreement from becoming an argument:
+
+> Welcome the disagreement. Remember the slogan, "When two partners always agree, one of them is not necessary." If there is some point you haven't thought about, be thankful if it is brought to your attention. Perhaps this disagreement is your opportunity to be corrected before you make a serious mistake.  
+Distrust your first instinctive impression. Our first natural reaction in a disagreeable situation is to be defensive. Be careful. Keep calm and watch out for your first reaction. It may be you at your worst, not your best.  
+Control your temper. Remember, you can measure the size of a person by what makes him or her angry.  
+Listen first. Give your opponents a chance to talk. Let them finish. Do not resist, defend or debate. This only raises barriers. Try to build bridges of understanding. Don't build higher barriers of misunderstanding.  
+Look for areas of agreement. When you have heard your opponents out, dwell first on the points and areas on which you agree.
+Be honest, Look for areas where you can admit error and say so. Apologize for your mistakes. It will help disarm your opponents and reduce defensiveness.  
+Promise to think over your opponents' ideas and study them carefully. And mean it. Your opponents may be right. It is a lot easier at this stage to agree to think about their points than to move rapidly ahead and find yourself in a position where your opponents can say: "We tried to tell you, but you wouldn't listen."  
+Thank your opponents sincerely for their interest. Anyone who takes the time to disagree with you is interested in the same things you are. Think of them as people who really want to help you, and you may turn your opponents into friends.  
+Postpone action to give both sides time to think through the problem. Suggest that a new meeting be held later that day or the next day, when all the facts may be brought to bear. In preparation for this meeting, ask yourself some hard questions:
+Could my opponents be right? Partly right? Is there truth or merit in their position or argument? Is my reaction one that will relieve the problem, or will it just relieve any frustration? Will my reaction drive my opponents further away or draw them closer to me? Will my reaction elevate the estimation good people have of me? Will I win or lose? What price will I have to pay if I win? If I am quiet about it, will the disagreement blow over? Is this difficult situation an opportunity for me?  
+
+__Principle 1 The only way to get the best of an argument is to avoid it.__
