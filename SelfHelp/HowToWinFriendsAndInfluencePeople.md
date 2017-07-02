@@ -221,7 +221,7 @@ __Principle 6 - Make the other person feel important-and do it sincerely.__
 
 # Part Three - How To Win People To Your Way Of Thinking
 
-__You Can't Win An Argument__
+### 1. You Can't Win An Argument
 
 As a result of all this, I have come to the conclusion that there is only one way under high heaven to get the best of an argument - and that is to avoid it. Avoid it as you would avoid rattlesnakes and earthquakes. Nine times out of ten, an argument ends with each of the contestants more firmly convinced than ever that he is absolutely right.
 You can't win an argument. You can't because if you lose it, you lose it; and if you win it, you lose it. Why? Well, suppose you triumph over the other man and shoot his argument full of holes and prove that he is non compos mentis. Then what? You will feel fine. But what about him? You have made him feel inferior. You have hurt his pride. He will resent your triumph. And - A man convinced against his will Is of the same opinion still.
@@ -247,3 +247,50 @@ Postpone action to give both sides time to think through the problem. Suggest th
 Could my opponents be right? Partly right? Is there truth or merit in their position or argument? Is my reaction one that will relieve the problem, or will it just relieve any frustration? Will my reaction drive my opponents further away or draw them closer to me? Will my reaction elevate the estimation good people have of me? Will I win or lose? What price will I have to pay if I win? If I am quiet about it, will the disagreement blow over? Is this difficult situation an opportunity for me?  
 
 __Principle 1 The only way to get the best of an argument is to avoid it.__
+
+### 2 - A Sure Way Of Making Enemies -And How To Avoid It
+When Theodore Roosevelt was in the White House, he confessed that if he could be right 75 percent of the time, he would reach the highest measure of his expectation.
+
+If that was the highest rating that one of the most distinguished men of the twentieth century could hope to obtain, what about you and me?
+
+If you can be sure of being right only 55 percent of the time, you can go down to Wall Street and make a million dollars a day. If you can't be sure of being right even 55 percent of the time, why should you tell other people they are wrong?
+You can tell people they are wrong by a look or an intonation or a gesture just as eloquently as you can in words - and if you tell them they are wrong, do you make them want to agree with you? Never! For you have struck a direct blow at their intelligence, judgment, pride and self-respect. That will make them want to strike back. But it will never make them want to change their minds. You may then hurl at them all the logic of a Plato or an Immanuel Kant, but you will not alter their opinions, for you have hurt their feelings.
+
+Never begin by announcing "I am going to prove so-and-so to you." That's bad. That's tantamount to saying: "I'm smarter than you are, I'm going to tell you a thing or two and make you change your mind."
+
+That is a challenge. It arouses opposition and makes the listener want to battle with you before you even start.
+It is difficult, under even the most benign conditions, to change people's minds. So why make it harder? Why handicap yourself?
+If you are going to prove anything, don't let anybody know it. Do it so subtly, so adroitly, that no one will feel that you are doing it. This was expressed succinctly by Alexander Pope:
+
+> Men must be taught as if you taught them not, and things unknown proposed as things forgot.
+
+Over three hundred years ago Galileo said:  
+> You cannot teach a man anything; you can only help him to find it within himself.  
+
+As Lord Chesterfield said to his son:
+> Be wiser than other people if you can; but do not tell them so.   
+
+Socrates said repeatedly to his followers in Athens:
+> One thing only I know, and that is that I know nothing.
+
+If a person makes a statement that you think is wrong - yes, even that you know is wrong - isn't it better to begin by saying: "Well, now, look, I thought otherwise, but I may be wrong. I frequently am. And if I am wrong, I want to be put right. Let's examine the facts."
+There's magic, positive magic, in such phrases as: "I may be wrong. I frequently am. Let's examine the facts."
+Nobody in the heavens above or on earth beneath or in the waters under the earth will ever object to your saying: "I may be wrong. Let's examine the facts."
+
+You will never get into trouble by admitting that you may be wrong. That will stop all argument and inspire your opponent to be just as fair and open and broad-minded as you are. It will make him want to admit that he, too, may be wrong.
+
+Few people are logical. Most of us are prejudiced and biased. Most of us are blighted with preconceived notions, with jealousy, suspicion, fear, envy and pride. And most citizens don't want to change their minds about their religion or their haircut or communism or their favorite movie star. So, if you are inclined to tell people they are wrong, please read the following paragraph every morning before breakfast. It is from James Harvey Robinson's enlightening book The Mind in the Making.
+
+We sometimes find ourselves changing our minds without any resistance or heavy emotion, but if we are told we are wrong, we resent the imputation and harden our hearts. We are incredibly heedless in the formation of our beliefs, but find ourselves filled with an illicit passion for them when anyone proposes to rob us of their companionship. It is obviously not the ideas themselves that are dear to us, but our self-esteem which is threatened. ... The little word "my" is the most important one in human affairs, and properly to reckon with it is the beginning of wisdom. It has the same force whether it is "my" dinner, "my" dog, and "my" house, or "my" father, "my" country, and "my" God. We not only resent the imputation that our watch is wrong, or our car shabby, but that our conception of the canals of Mars, of the pronunciation of "Epictetus," of the medicinal value of salicin, or of the date of Sargon I is subject to revision. We like to continue to believe what we have been accustomed to accept as true, and the resentment aroused when doubt is cast upon any of our assumptions leads us to seek every manner of excuse for clinging to it. The result is that most of our so- called reasoning consists in finding arguments for going on believing as we already do.
+
+Carl Rogers, the eminent psychologist, wrote in his book On Becoming a Person: I have found it of enormous value when I can permit myself to understand the other person. The way in which I have worded this statement may seem strange to you, Is it necessary to permit oneself to understand another? I think it is. Our first reaction to most of the statements (which we hear from other people) is an evaluation or judgment, rather than an understanding of it. When someone expresses some feeling, attitude or belief, our tendency is almost immediately to feel "that's right," or "that's stupid," "that's abnormal," "that's unreasonable," "that's incorrect," "that's not nice." Very rarely do we permit ourselves to understand precisely what the meaning of the statement is to the other person.
+
+When we are wrong, we may admit it to ourselves. And if we are handled gently and tactfully, we may admit it to others and even take pride in our frankness and broad-mindedness. But not if someone else is trying to ram the unpalatable fact down our esophagus.
+
+And 2,200 years before Christ was born, King Akhtoi of Egypt gave his son some shrewd advice - advice that is sorely needed today. "Be diplomatic," counseled the King. "It will help you gain your point."
+
+In other words, don't argue with your customer or your spouse or your adversary. Don't tell them they are wrong, don't get them stirred up. Use a little diplomacy.
+
+__Principle 2 - Show respect for the other person's opinions. Never say, "You're wrong."__
+
+### 3 - If You're Wrong, Admit It
