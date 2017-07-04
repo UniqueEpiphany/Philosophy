@@ -294,3 +294,22 @@ In other words, don't argue with your customer or your spouse or your adversary.
 __Principle 2 - Show respect for the other person's opinions. Never say, "You're wrong."__
 
 ### 3 - If You're Wrong, Admit It
+
+Any fool can try to defend his or her mistakes - and most fools do - but it raises one above the herd and gives one a feeling of nobility and exultation to admit one's mistakes. 
+
+When we are right, let's try to win people gently and tactfully to our way of thinking, and when we are wrong - and that will be surprisingly often, if we are honest with ourselves - let's admit our mistakes quickly and with enthusiasm. Not only will that technique produce astonishing results; but, believe it or not, it is a lot more fun, under the circumstances, than trying to defend oneself.
+
+Remember the old proverb: "By fighting you never get enough, but by yielding you get more than you expected."
+
+__Principle 3 - If you are wrong, admit it quickly and emphatically.__
+
+### 4 - A Drop Of Honey
+If a man's heart is rankling with discord and ill feeling toward you, you can't win him to your way of thinking with all the logic in Christendom. Scolding parents and domineering bosses and husbands and nagging wives ought to realize that people don't want to change their minds. They can't be forced or driven to agree with you or me. But they may possibly be led to, if we are gentle and friendly, ever so gentle and ever so friendly.
+
+Lincoln said that, in effect, over a hundred years ago. Here are his words:It is an old and true maxim that "a drop of honey catches more flies than a gallon of gall." So with men, if you would win a man to you cause, first convince him that you are his sincere friend. Therein is a drop of honey that catches his heart; which, say what you will, is the great high road to his reason.
+
+The use of gentleness and friendliness is demonstrated day after day by people who have learned that a drop of honey catches more flies than a gallon of gall. F. Gale Connor of Lutherville, Maryland, proved this when he had to take his four-month-old car to the service department of the car dealer for the third time. He told our class: "It was apparent that talking to, reasoning with or shouting at the service manager was not going to lead to a satisfactory resolution of my problems.
+
+__Principle 4 - Begin in a friendly way.__
+
+### 5 - The Secret Of Socrates
