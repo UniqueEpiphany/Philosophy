@@ -313,3 +313,104 @@ The use of gentleness and friendliness is demonstrated day after day by people w
 __Principle 4 - Begin in a friendly way.__
 
 ### 5 - The Secret Of Socrates
+
+In talking with people, don't begin by discussing the things on which you differ. Begin by emphasizing - and keep on emphasizing - the things on which you agree. Keep emphasizing, if possible, that you are both striving for the same end and that your only difference is one of method and not of purpose.
+
+Get the other person saying "Yes, yes" at the outset. Keep your opponent, if possible, from saying "No." A "No" response, according to Professor Overstreet, (*) is a most difficult handicap to overcome. When you have said "No," all your pride of personality demands that you remain consistent with yourself. You may later feel that the "No" was ill-advised; nevertheless, there is your precious pride to consider! Once having said a thing, you feel you must stick to it. Hence it is of the very greatest importance that a person be started in the affirmative direction.
+
+The skillful speaker gets, at the outset, a number of "Yes" responses. This sets the psychological process of the listeners moving in the affirmative direction. It is like the movement of a billiard ball. Propel in one direction, and it takes some force to deflect it; far more force to send it back in the opposite direction.
+
+The psychological patterns here are quite clear. When a person says "No" and really means it, he or she is doing far more than saying a word of two letters. The entire organism - glandular, nervous, muscular -gathers itself together into a condition of rejection. There is, usually in minute but sometimes in observable degree, a physical withdrawal or readiness for withdrawal. The whole neuromuscular system, in short, sets itself on guard against acceptance. When, to the contrary, a person says "Yes," none of the withdrawal activities takes place. The organism is in a forward - moving, accepting, open attitude. Hence the more "Yeses" we can, at the very outset, induce, the more likely we are to succeed in capturing the attention for our ultimate proposal.
+
+"It took me years and cost me countless thousands of dollars in lost business before I finally learned that it doesn't pay to argue, that it is much more profitable and much more interesting to look at things from the other person's viewpoint and try to get that person saying 'yes, yes.' "
+
+Socrates, "the gadfly of Athens," was one of the greatest philosophers the world has ever known. He did something that only a handful of men in all history have been able to do: he sharply changed the whole course of human thought; and now, twenty-four centuries after his death, he is honored as one of the wisest persuaders who ever influenced this wrangling world.
+
+His method? Did he tell people they were wrong? Oh, no, not Socrates. He was far too adroit for that. His whole technique, now called the "Socratic method," was based upon getting a "yes, yes" response. He asked questions with which his opponent would have to agree. He kept on winning one admission after another until he had an armful of yeses. He kept on asking questions until finally, almost without realizing it, his opponents found themselves embracing a conclusion they would have bitterly denied a few minutes previously.
+
+The next time we are tempted to tell someone he or she is wrong, let's remember old Socrates and ask a gentle question - a question that will get the "yes, yes" response.
+
+The Chinese have a proverb pregnant with the age-old wisdom of the Orient: "He who treads softly goes far."
+
+They have spent five thousand years studying human nature, those cultured Chinese, and they have garnered a lot of perspicacity: "He who treads softly goes far."
+
+__Principle 5 - Get the other person saying "yes, yes" immediately.__
+
+### 6 - The Safety Valve In Handling Complaints
+Must people trying to win others to their way of thinking do too much talking themselves. Let the other people talk themselves out. They know more about their business and problems than you do. So ask them questions. Let them tell you a few things.
+
+If you disagree with them you may be tempted to interrupt. But don't. It is dangerous. They won't pay attention to you while they still have a lot of ideas of their own crying for expression. So listen patiently and with an open mind. Be sincere about it. Encourage them to express their ideas fully.
+
+Even our friends would much rather talk to us about their achievements than listen to us boast about ours. La Rochefoucauld, the French philosopher, said: "If you want enemies, excel your friends; but if you want friends, let your friends excel you."
+
+Why is that true? Because when our friends excel us, they feel important; but when we excel them, they - or at least some of them - will feel inferior and envious.
+
+__Principle 6 Let the other person do a great deal of the talking.__
+
+### 7 - How To Get Cooperation
+
+Don't you have much more faith in ideas that you discover for yourself than in ideas that are handed to you on a silver platter? If so, isn't it bad judgment to try to ram your opinions down the throats of other people? Isn't it wiser to make suggestions - and let the other person think out the conclusion?
+
+No one likes to feel that he or she is being sold some-thing or told to do a thing. We much prefer to feel that we are buying of our own accord or acting on our own ideas. We like to be consulted about our wishes, our wants, our thoughts.
+
+Letting the other person feel that the idea is his or hers not only works in business and politics, it works in family life as well.
+
+Ralph Waldo Emerson in his essay "Self-Reliance" stated: "In every work of genius we recognize our own rejected thoughts; they come back to us with a certain alienated majesty."
+
+Twenty-five centuries ago, Lao-tse, a Chinese sage, said some things that readers of this book might use today:
+" The reason why rivers and seas receive the homage of a hundred mountain streams is that they keep below them. Thus they are able to reign over all the mountain streams. So the sage, wishing to be above men, putteth himself below them; wishing to be before them, he putteth himself behind them. Thus, though his place be above men, they do not feel his weight; though his place be before them, they do not count it an injury."
+
+__Principle 7 - Let the other person feel that the idea is his or hers.__
+
+### 8 - A Formula That Will Work Wonders For You
+
+Remember that other people may be totally wrong. But they don't think so. Don't condemn them. Any fool can do that. Try to understand them. Only wise, tolerant, exceptional people even try to do that.
+
+There is a reason why the other man thinks and acts as he does. Ferret out that reason - and you have the key to his actions, perhaps to his personality. Try honestly to put yourself in his place.
+
+If you say to yourself, "How would I feel, how would I react if I were in his shoes?" you will save yourself time and irritation, for "by becoming interested in the cause, we are less likely to dislike the effect." And, in addition, you will sharply increase your skill in human relationships.
+
+"Stop a minute," says Kenneth M. Goode in his book How to Turn People Into Gold, "stop a minute to contrast your keen interest in your own affairs with your mild concern about anything else. Realize then, that everybody else in the world feels exactly the same way! Then, along with Lincoln and Roosevelt, you will have grasped the only solid foundation for interpersonal relationships; namely, that success in dealing with people depends on a sympathetic grasp of the other persons' viewpoint."
+
+In his book Getting Through to People, Dr. Gerald S. Nirenberg commented: "Cooperativeeness in conversation is achieved when you show that you consider the other person's ideas and feelings as important as your own. Starting your conversation by giving the other person the purpose or direction of your conversation, governing what you say by what you would want to hear if you were the listener, and accepting his or her viewpoint will encourage the listener to have an open mind to your ideas."
+
+Tomorrow, before asking anyone to put out a fire or buy your product or contribute to your favorite charity, why not pause and close your eyes and try to think the whole thing through from another person's point of view? Ask yourself: "Why should he or she want to do it?" True, this will take time, but it will avoid making enemies and will get better results - and with less friction and less shoe leather.
+
+"I would rather walk the sidewalk in front of a person's office for two hours before an interview," said Dean Donham of the Harvard business school, "than step into that office without a perfectly clear idea of what I was going to say and what that person - from my knowledge of his or her interests and motives - was likely to answer."
+
+__Principle 8 - Try honestly to see things from the other person's point of view.__
+
+### 9 - What Everybody Wants
+Wouldn't you like to have a magic phrase that would stop arguments, eliminate ill feeling, create good will, and make the other person listen attentively?
+
+Yes? All right. Here it is: "I don't blame you one iota for feeling as you do. If I were you I would undoubtedly feel just as you do."
+
+An answer like that will soften the most cantankerous old cuss alive. And you can say that and be 100 percent sincere, because if you were the other person you, of course, would feel just as he does. Take Al Capone, for example. Suppose you had inherited the same body and temperament and mind that Al Capone had. Suppose you had had his environment and experiences. You would then be precisely what he was - and where he was. For it is those things - and only those things - that made him what he was. The only reason, for example, that you are not a rattlesnake is that your mother and father weren't rattlesnakes.
+
+You deserve very little credit for being what you are - and remember, the people who come to you irritated, bigoted, unreasoning, deserve very little discredit for being what they are. Feel sorry for the poor devils. Pity them. Sympathize with them. Say to yourself: "There, but for the grace of God, go I."
+
+Three-fourths of the people you will ever meet are hungering and thirsting for sympathy. Give it to them, and they will love you.
+
+Dr. Arthur I. Gates said in his splendid book Educational Psychology: "Sympathy the human species universally craves. The child eagerly displays his injury; or even inflicts a cut or bruise in order to reap abundant sympathy. For the same purpose adults ... show their bruises, relate their accidents, illness, especially details of surgical operations. 'Self-pity' for misfortunes real or imaginary is in some measure, practically a universal practice."
+So, if you want to win people to your way of thinking, put in practice...
+
+___Principle 9 - Be sympathetic with the other person's ideas and desires.___
+
+### 10 - An Appeal That Everybody Likes
+
+The person himself will think of the real reason. You don't need to emphasize that. But all of us, being idealists at heart, like to think of motives that sound good. So, in order to change people, appeal to the nobler motives.
+
+When the late Lord Northcliffe found a newspaper using a picture of him which he didn't want published, he wrote the editor a letter. But did he say, "Please do not publish that picture of me any more; I don't like it"? No, he appealed to a nobler motive. He appealed to the respect and love that all of us have for motherhood. He wrote, "Please do not publish that picture of me any more. My mother doesn't like it."
+
+When John D. Rockefeller, Jr., wished to stop newspaper photographers from snapping pictures of his children, he too appealed to the nobler motives. He didn't, say: "I don't want their pictures published." No, he appealed to the desire, deep in all of us, to refrain from harming children. He said: "You know how it is, boys. You've got children yourselves, some of you. And you know it's not good for youngsters to get too much publicity."
+
+__Principle 10 - Appeal to the nobler motives.__
+
+### 11 - The Movies Do It. Tv Does It. Why Don't You Do It?
+This is the day of dramatization. Merely stating a truth isn't enough. The truth has to be made vivid, interesting, dramatic. You have to use showmanship. The movies do it. Television does it. And you will have to do it if you want attention.
+
+Television commercials abound with examples of the use of dramatic techniques in selling products. Sit down one evening in front of your television set and analyze what the advertisers do in each of their presentations. You will note how an antacid medicine changes the color of the acid in a test tube while its competitor doesn't, how one brand of soap or detergent gets a greasy shirt clean when the other brand leaves it gray. You'll see a car maneuver around a series of turns and curves - far better than just being told about it. Happy faces will show contentment with a variety of products. All of these dramatize for the viewer the advantages offered by whatever is being sold - and they do get people to buy them.
+
+__Principle 11 - Dramatize your ideas.__
+
+### 12 - When Nothing Else Works, Try This
