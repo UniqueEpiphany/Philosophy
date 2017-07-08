@@ -77,6 +77,41 @@ Balancing stress and recovery is critical not just in competitive sports, but al
 
 The same process occurs emotionally, mentally and spiritually. Emotional depth and resilience depend on active engagement with others and with our own feelings. Mental acuity diminishes in the absence of ongoing intellectual challenge. Spiritual energy capacity depends on regularly revisiting our deepest values and holding ourselves accountable in our behavior. Full engagement requires cultivating a dynamic balance between the expenditure of energy (stress) and the renewal of energy (recovery) in all dimensions.
 
+> We call this rhythmic wave oscillation, and it represents the fundamental pulse of life.
+
+The more powerful our pulse, the more fully engaged we can be. The same is true organizationally. To the degree that leaders and managers build cultures around continuous work—whether that means several-hour meetings, or long days, or the expectation that people will work in the evenings and on weekends—performance is necessarily compromised over time. Cultures that encourage people to seek intermittent renewal not only inspire greater commitment, but also more productivity.
+
+> We are oscillatory beings in an oscillatory universe. Rhythmicity is our inheritance
+
+These ultradian rhythms help to account for the ebb and flow of our energy throughout the day. Physiological measures such as heart rate, hormonal levels, muscle tension and brain-wave activity all increase during the first part of the cycle—and so does alertness. After an hour or so, these measures start to decline. Somewhere between 90 and 120 minutes, the body begins to crave a period of rest and recovery. Signals include a desire to yawn and stretch, hunger pangs, increased tension, difficulty concentrating, an inclination to procrastinate or fantasize, and a higher incidence of mistakes. We are capable of overriding these natural cycles, but only by summoning the fight-or-flight response and flooding our bodies with stress hormones that are designed to help us handle emergencies.
+
+The long-term cost is that toxins build up inside us. We can only push so hard for so long without breaking down and burning out. Stress hormones that circulate chronically in our bodies may be temporarily energizing, but over time they prompt symptoms such as hyperactivity, aggressiveness, impatience, irritability, anger, selfabsorption and insensitivity to others. Override the need for oscillation long enough and the symptoms may extend to headaches, back pain, gastrointestinal disorders, and ultimately to heart attacks and even death.
+
+Because the body craves oscillation, we will often turn to artificial means to make waves when our lives become too linear. When we lack sufficient energy to meet the demands in our lives, for example, we turn to stimulants such as caffeine, cocaine and amphetamines. When we can't relax naturally, we may begin to rely on alcohol, marijuana and sleeping pills to cool down. If you are drinking several cups of coffee to stay alert during the day and a couple of drinks or several glasses of wine to disengage in the evening, you are simply masking your own linearity.
+
+> As physiologist Martin Moore-Ede, the president of Circadian Technologies and the author of The Twenty-Four-Hour Society, puts it: At the heart of the problem is a fundamental conflict between the demands of our man-made civilization and the very design of the human brain and body. . . . Our bodies were designed to hunt by day, sleep at night and never travel more than a few dozen miles from sunrise to sunset. Now we work and play at all hours, whisk off by jet to the far side of the globe, make life-or-death decisions or place orders on foreign stock exchanges in the wee hours of the morning. The pace of technological innovation is outstripping the ability of the human race to understand the consequences. We are machine-centered in our thinking—focused on the optimization of technology and equipment—rather than human-centered—focused on the optimization of human alertness and performance.
+
+Any addictive behavior—including work—prompts a highly linear form of energy expenditure. It is no wonder that efforts to rehabilitate drug and alcohol addicts are referred to as "recovery." "Overwork is this decade's cocaine, the problem without a name," says Bryan Robinson, who has written widely about the phenomenon and estimates that as many as 25 percent of Americans have the addiction. "Workaholism is an obsessive-compulsive disorder," he writes, "that manifests itself through self-imposed demands, an inability to regulate work habits and an overindulgence in work—to the exclusion of most other life activities." Unlike most addictions, workaholism is often admired, encouraged and materially well rewarded. The costs are more long term. Researchers have found that those who describe themselves as workaholics have a significantly higher than average incidence of alcohol abuse, divorce and stress-related illnesses.
+
+Regularly renewing our energy insures that we can sustain full engagement— so long as demand remains constant. But what happens when increased demand overwhelms our capacity and even a full tank is not enough? The answer is paradoxical—and precisely the opposite of what you've probably been told most of your life. To build capacity, we must systematically expose ourselves to more stress—followed by adequate recovery. Challenging a muscle past its current limits prompts a phenomenon known as supercompensation. Faced with a demand that exceeds the muscle's current capacity, the body responds by building more muscle fibers in anticipation of the next stimulus.
+
+> * Our most fundamental need as human beings is to spend and recover energy. We call this oscillation.   
+> * The opposite of oscillation is linearity: too much energy expenditure without recovery or too much recovery without sufficient energy expenditure.   
+> * Balancing stress and recovery is critical to high performance both individually and organizationally. 
+> * We must sustain healthy oscillatory rhythms at all four levels of what we term the "performance pyramid": physical, emotional, mental and spiritual.   
+> * We build emotional, mental and spiritual capacity in precisely the same way that we build physical capacity. We must systematically expose ourselves to stress beyond our normal limits, followed by adequate recovery.   
+> * Expanding capacity requires a willingness to endure short-term discomfort in the service of long-term reward.  
+
+
+# Physical Energy: Fueling the Fire
+
+
+
+
+
+
+
+
 
 
 
