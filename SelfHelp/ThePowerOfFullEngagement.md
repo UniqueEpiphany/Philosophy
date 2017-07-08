@@ -69,7 +69,32 @@ But just as negative habits and routines in our lives can be undermining and des
 * Principle 4: Positive energy rituals—highly specific routines for managing energy—arc the key to full engagement and sustained high performance.  
 * Making change that lasts requires a three-step process: Define Purpose, Face the Truth and Take Action.  
 
-# The Disengaged Life of Roger B.
+# The Pulse of High Performance:Balancing Stress and Recovery
+
+Energy is simply the capacity to do work. Our most fundamental need as human beings is to spend and recover energy.
+
+Balancing stress and recovery is critical not just in competitive sports, but also in managing energy in all facets of our lives. When we expend energy, we draw down our reservoir. When we recover energy, we fill it back up. Too much energy expenditure without sufficient recovery eventually leads to burnout and breakdown. (Overuse it and lose it.) Too much recovery without sufficient stress leads to atrophy and weakness. (Use it or lose it.) Just think about an arm placed in a cast for an extended period of time in order to protect it from the "stress" to which it is ordinarily subjected. In a very short time, the muscles of the arm begin to atrophy from disuse. The benefits of a sustained fitness program decrease significantly after just one week of inactivity—and disappear altogether in as few as four weeks.
+
+The same process occurs emotionally, mentally and spiritually. Emotional depth and resilience depend on active engagement with others and with our own feelings. Mental acuity diminishes in the absence of ongoing intellectual challenge. Spiritual energy capacity depends on regularly revisiting our deepest values and holding ourselves accountable in our behavior. Full engagement requires cultivating a dynamic balance between the expenditure of energy (stress) and the renewal of energy (recovery) in all dimensions.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
