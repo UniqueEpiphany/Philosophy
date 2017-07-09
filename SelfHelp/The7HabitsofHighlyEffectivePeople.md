@@ -53,10 +53,17 @@ The more aware we are of our basic paradigms, maps, or assumptions, and the exte
 
 ### The Power of a Paradigm Shift
 
+We could spend weeks, months, even years laboring with the personality ethic trying to change our attitudes and behaviors and not even begin to approach the phenomenon of change that occurs spontaneously when we see things differently. It becomes obvious that if we want to make relatively minor changes in our lives, we can perhaps appropriately focus on our attitudes and behaviors. But if we want to make significant, quantum change, we need to work on our basic paradigms. In the words of Thoreau, "For every thousand hacking at the leaves of evil, there is one striking at the root." We can only achieve quantum improvements in our lives as we quit hacking at the leaves of attitude and behavior and get to work on the root, the paradigms from which our attitudes and behaviors flow.
 
 
+Paradigms are powerful because they create the lens through which we see the world. The power of a Paradigm Shift is the essential power of quantum change, whether that shift is an instantaneous or a slow and deliberate process.
 
+### The Principle-Centered Paradigm
+Principles are guidelines for human conduct that are proven to have enduring, permanent value. They're fundamental. They're essentially unarguable because they are self-evident. One way to quickly grasp the self-evident nature of principles is to simply consider the absurdity of attempting to live an effective life based on their opposites. I doubt that anyone would seriously consider unfairness, deceit, baseness, uselessness, mediocrity, or degeneration to be a solid foundation for lasting happiness and success. Although people may argue about how these principles are defined or manifested or achieved, there seems to be an innate consciousness and awareness that they exist.
 
+The more closely our maps or paradigms are aligned with these principles or natural laws, the more accurate and functional they will be. Correct maps will infinitely impact our personal and interpersonal effectiveness far more than any amount of effort expended on changing our attitudes and behaviors.
+
+### Principles of Growth and Change
 
 
 
