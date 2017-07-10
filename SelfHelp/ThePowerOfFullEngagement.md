@@ -105,6 +105,45 @@ Regularly renewing our energy insures that we can sustain full engagement— so 
 
 # Physical Energy: Fueling the Fire
 
+The importance of physical energy seems obvious for athletes, construction workers and farmers. Because the rest of us are evalu- Physical Energy: Fueling the Fire ated more by what we do with our minds than with our bodies, we tend to discount the role that physical energy plays in performance. In most jobs, the physical body has been completely cut off from the performance equation. In reality, physical energy is the fundamental source of fuel, even if our work is almost completely sedentary. It not only lies at the heart of alertness and vitality but also affects our ability to manage our emotions, sustain concentration, think creatively, and even maintain our commitment to whatever mission we are on. Leaders and managers make a fundamental mistake when they assume that they can overlook the physical dimension of energy and still expect those who work for them to perform at their best.
+
+At the most basic level, physical energy is derived from the interaction between oxygen and glucose. In practical terms, the size of our energy reservoir depends on the patterns of our breathing, the foods that we eat and when we eat them, the quantity and quality of our sleep, the degree to which we get intermittent recovery during the day, and the level of our fitness. Building a rhythmic balance between physical energy expenditure and recovery insures that the level of our energy reserves remains relatively constant. Pushing past our comfort zone— and then recovering—is a means by which to expand physical capacity wherever it is insufficient to meet demand.
+
+### STRATEGIC EATING
+Eating better obviously has benefits in and of itself, including losing weight, looking better and improving health, all of which may have positive energy consequences. Our primary aim is to help clients sustain a steady, high-octane source of energy throughout the day. When you awake in the mornings, after eight to twelve hours without eating, your blood glucose levels are at a low ebb, even if you don't feel consciously hungry. Eating breakfast is critically important. It not only increases blood glucose levels, but also jump-starts metabolism.
+
+It is equally important to eat foods that are low on the glycemic index, which measures the speed with which sugar from specific foods is released into the bloodstream.  A slower release provides a steadier source of energy. The lowglycemic breakfast foods that provide the highest octane and longest lasting source of energy, for example, include whole grains, proteins and low-glycemic fruits such as strawberries, pears, grapefruit and apples. By contrast, high-glycemic foods such as muffins or sugary cereals spike energy for short periods but prompt a crash in as few as thirty minutes. Even a breakfast traditionally viewed as healthy—an unbutered bagel and a glass of orange juice—is very high on the glycemic index and therefore a poor source of sustaining energy.
+
+Sustained performance depends not just on eating at regular intervals but also on eating only as much as you need to drive your energy for the next two to three hours. Portion control is critical both in managing weight and in regulating energy. It is just as problematic to eat too much, too often, as it is to eat too little, too infrequently. Snacks between meals should typically be between 100 and 150 calories and once again should focus on low-glycemic foods such as nuts and sunflower seeds, fruits, or half of a typical-size 200 calorie energy bar.
+
+Drinking water, we have found, is perhaps the most undervalued source of physical energy renewal. Unlike hunger, thirst is an inadequate barometer of need. By the time we feel thirsty, we may be long since dehydrated. A growing body of research suggests that drinking at least sixty-four ounces of water at intervals throughout the day serves performance in a range of important ways. Dehydrate a muscle by as little as 3 percent, for example, and it will lose 10 percent of its strength and 8 percent of its speed. Inadequate hydration also compromises concentration and coordination.
+
+Drinking more water may even have health and longevity benefits. In a study of 20,000 people, Australian researchers found that those who drank five eight-ounce glasses of water a day were significantly less likely to die of coronary heart disease as those who drank two glasses of water or less. One possible reason is that dehydration may elevate risk factors such as blood viscosity. By contrast, the consumption of coffee and caffeinated sodas provided no statistically significant heart benefits. Like high-sugar foods, caffeinated drinks such as coffee, tea and diet colas provide temporary spikes of energy. Because caffeine is a diuretic, however, it prompts dehydration and fatigue in the long run.
+
+### GEORGE D.: LOW ENERGY
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
