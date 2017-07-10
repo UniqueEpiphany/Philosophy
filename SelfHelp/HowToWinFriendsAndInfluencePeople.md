@@ -414,3 +414,27 @@ Television commercials abound with examples of the use of dramatic techniques in
 __Principle 11 - Dramatize your ideas.__
 
 ### 12 - When Nothing Else Works, Try This
+
+He studied in depth the work attitudes of thousands of people ranging from factory workers to senior executives. What do you think he found to be the most motivating factor - the one facet of the jobs that was most stimulating? Money? Good working conditions? Fringe benefits? No - not any of those. The one major factor that motivated people was the work itself. If the work was exciting and interesting, the worker looked forward to doing it and was motivated to do a good job.
+
+That is what every successful person loves: the game. The chance for self-expression. The chance to prove his or her worth, to excel, to win. That is what makes foot-races and hog-calling and pie-eating contests. The desire to excel. The desire for a feeling of importance.
+
+__Principle 12 - Throw down a challenge.__
+
+> In A Nutshell - Win People To Your Way Of Thinking
+> Principle 1 The only way to get the best of an argument is to avoid it.
+> Principle 2 Show respect for the other person's opinions. Never say, "You're wrong."
+> Principle 3 If you are wrong, admit it quickly and emphatically.
+> Principle 4 Begin in a friendly way.
+> Principle 5 Get the other person saying "yes, yes" immediately.
+> Principle 6 Let the other person do a great deal of the talking.
+> Principle 7 Let the other person feel that the idea is his or hers.
+> Principle 8 Try honestly to see things from the other person's point of view.
+> Principle 9 Be sympathetic with the other person's ideas and desires.
+> Principle 10 Appeal to the nobler motives.
+> Principle 11 Dramatize your ideas.
+> Principle 12 Throw down a challenge.
+
+# Part Four - Be a Leader: How to Change People Without Giving Offense or Arousing Resentment
+
+### 1 - If You Must Find Fault, This Is The Way To Begin
