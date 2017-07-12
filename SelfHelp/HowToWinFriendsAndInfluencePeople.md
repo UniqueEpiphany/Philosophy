@@ -438,3 +438,32 @@ __Principle 12 - Throw down a challenge.__
 # Part Four - Be a Leader: How to Change People Without Giving Offense or Arousing Resentment
 
 ### 1 - If You Must Find Fault, This Is The Way To Begin
+
+A friend of mine was a guest at the White House for a weekend during the administration of Calvin Coolidge. Drifting into the President's private office, he heard Coolidge say to one of his secretaries, "That's a pretty dress you are wearing this morning, and you are a very attractive young woman."
+
+That was probably the most effusive praise Silent Cal had ever bestowed upon a secretary in his life. It was so unusual, so unexpected, that the secretary blushed in confusion. Then Coolidge said, "Now, don't get stuck up. I just said that to make you feel good. From now on, I wish you would be a little bit more careful with your Punctuation."
+
+His method was probably a bit obvious, but the psychology was superb. It is always easier to listen to unpleasant things after we have heard some praise of our good points.
+
+__Principle 1 - Begin with praise and honest appreciation.__
+
+
+### 2 - How To Criticize-And Not Be Hated For It
+Simply changing one three-letter word can often spell the difference between failure and success in changing people without giving offense or arousing resentment.
+
+Many people begin their criticism with sincere praise followed by the word "but" and ending with a critical statement. For example, in trying to change a child's careless attitude toward studies, we might say, "We're really proud of you, Johnnie, for raising your grades this term. But if you had worked harder on your algebra, the results would have been better."
+In this case, Johnnie might feel encouraged until he heard the word "but." He might then question the sincerity of the original praise. To him, the praise seemed only to be a contrived lead-in to a critical inference of failure. Credibility would be strained, and we probably would not achieve our objectives of changing Johnnie's attitude toward his studies.
+
+This could be easily overcome by changing the word "but" to "and." "We're really proud of you, Johnnie, for raiseing your grades this term, and by continuing the same conscientious efforts next term, your algebra grade can be up with all the others."
+
+Now, Johnnie would accept the praise because there was no follow- up of an inference of failure. We have called his attention to the behavior we wished to change indirectly and the chances are he will try to live up to our expectations.
+
+__An effective way to correct others' mistakes is ... • Principle 2 - Call attention to people's mistakes indirectly.__
+
+### 3 - Talk About Your Own Mistakes First
+
+
+
+
+
+
