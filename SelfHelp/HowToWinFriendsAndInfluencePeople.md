@@ -462,8 +462,59 @@ __An effective way to correct others' mistakes is ... • Principle 2 - Call att
 
 ### 3 - Talk About Your Own Mistakes First
 
+It isn't nearly so difficult to listen to a recital of your faults if the person criticizing begins by humbly admitting that he, too, is far from impeccable.
 
+Admitting one's own mistakes - even when one hasn't corrected them - can help convince somebody to change his behavior. 
 
+__A good leader follows this principle: • Principle 3 - Talk about your own mistakes before criticizing the other person.__
 
+### 4 - No One Likes To Take Orders
 
+I once had the pleasure of dining with Miss Ida Tarbell, the dean of American biographers. When I told her I was writing this book, we began discussing this all-important subject of getting along with people, and she told me that while she was writing her biography of Owen D. Young, she interviewed a man who had sat for three years in the same office with Mr. Young. This man declared that during all that time he had never heard Owen D. Young give a direct order to anyone. He always gave suggestions, not orders. Owen D. Young never said, for example, "Do this or do that," or "Don't do this or don't do that." He would say, "You might consider this," or "Do you think that would work?" Frequently he would say, after he had dictated a letter, "What do you think of this?" In looking over a letter of one of his assistants, he would say, "Maybe if we were to phrase it this way it would be better." He always gave people the opportunity to do things themselves; he never told his assistants to do things; he let them do them, let them learn from their mistakes.
 
+A technique like that makes it easy for a person to correct errors. A technique like that saves a person's pride and gives him or her a feeling of importance. It encourages cooperation instead of rebellion.
+
+Asking questions not only makes an order more palatable; it often stimulates the creativity of the persons whom you ask. People are more likely to accept an order if they have had a part in the decision that caused the order to be issued.
+
+__An effective leader will use ... • Principle 4 - Ask questions instead of giving direct orders.__
+
+### 5 - Let The Other Person Save Face
+Years ago the General Electric Company was faced with the delicate task of removing Charles Steinmetz from the head of a department. Steinmetz, a genius of the first magnitude when it came to electricity, was a failure as the head of the calculating department. Yet the company didn't dare offend the man. He was indispensable - and highly sensitive. So they gave him a new title. They made him Consulting Engineer of the General Electric Company - a new title for work he was already doing -and let someone else head up the department.
+
+Steinmetz was happy.
+
+So were the officers of G.E. They had gently maneuvered their most temperamental star, and they had done it without a storm - by letting him save face.
+
+Letting one save face! How important, how vitally important that is! And how few of us ever stop to think of it! We ride roughshod over the feelings of others, getting our own way, finding fault, issuing threats, criticizing a child or an employee in front of others, without even considering the hurt to the other person's pride. Whereas a few minutes' thought, a considerate word or two, a genuine understanding of the other person's attitude, would go so far toward alleviating the sting!
+
+Let's remember that the next time we are faced with the distasteful necessity of discharging or reprimanding an employee.
+
+__A real leader will always follow ... • Principle 5 - Let the other person save face.__
+
+### 6 - How To Spur People On To Success
+
+Pete Barlow was an old friend of mine. He had a dog-and-pony act and spent his life traveling with circuses and vaudeville shows. I loved to watch Pete train new dogs for his act. I noticed that the moment a dog showed the slightest improvement, Pete patted and praised him and gave him meat and made a great to-do about it.
+
+That's nothing new. Animal trainers have been using that same technique for centuries.
+
+Why, I wonder, don't we use the same common sense when trying to change people that we use when trying to change dogs? Why don't we use meat instead of a whip? Why don't we use praise instead of condemnation? Let us praise even the slightest improvement. That inspires the other person to keep on improving.
+
+In his book I Ain't Much, Baby-But I'm All I Got, the psychologist Jess Lair comments: "Praise is like sunlight to the warm human spirit; we cannot flower and grow without it. And yet, while most of us are only too ready to apply to others the cold wind of criticism, we are somehow reluctant to give our fellow the warm sunshine of praise."
+
+Remember, we all crave appreciation and recognition, and will do almost anything to get it. But nobody wants insincerity. Nobody wants flattery.
+
+Let me repeat: The principles taught in this book will work only when they come from the heart. I am not advocating a bag of tricks. I am talking about a new way of life.
+
+Talk about changing people. If you and I will inspire the people with whom we come in contact to a realization of the hidden treasures they possess, we can do far more than change people. We can literally transform them.
+
+Exaggeration? Then listen to these sage words from William James, one of the most distinguished psychologists and philosophers America has ever produced:
+
+Compared with what we ought to be, we are only half awake. We are making use of only a small part of our physical and mental resources. Stating the thing broadly, the human individual thus lives far within his limits. He possesses powers of various sorts which he habitually fails to use.
+
+Yes, you who are reading these lines possess powers of various sorts which you habitually fail to use; and one of these powers you are probably not using to the fullest extent is your magic ability to praise people and inspire them with a realization of their latent possibilities.
+
+Abilities wither under criticism; they blossom under encouragement.
+
+__To become a more effective leader of people, apply ... • Principle 6 - Praise the slightest improvement and praise every improvement. Be "hearty in your approbation and lavish in your praise."__
+
+### 7 - Give A Dog A Good Name
