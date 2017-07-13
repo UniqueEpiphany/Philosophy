@@ -518,3 +518,23 @@ Abilities wither under criticism; they blossom under encouragement.
 __To become a more effective leader of people, apply ... • Principle 6 - Praise the slightest improvement and praise every improvement. Be "hearty in your approbation and lavish in your praise."__
 
 ### 7 - Give A Dog A Good Name
+
+"The average person," said Samuel Vauclain, then president of the Baldwin Locomotive Works, "can be led readily if you have his or her respect and if you show that you respect that person for some kind of ability."
+
+In short, if you want to improve a person in a certain spect, act as though that particular trait were already one of his or her outstanding characteristics. Shakespeare said "Assume a virtue, if you have it not." And it might be well to assume and state openly that other people have the virtue you want them to develop. Give them a fine reputation to live up to, and they will make prodigious efforts rather than see you disillusioned.
+
+__If you want to excel in that difficult leadership role of changing the attitude or behavior of others, use ... Principle 7 - Give the other person a fine reputation to live up to.__
+
+### 8 - Make The Fault Seem Easy To Correct
+
+A bachelor friend of mine, about forty years old, became engaged, and his fiancйe persuaded him to take some belated dancing lessons. "The Lord knows I needed dancing lessons," he confessed as he told me the story, "for I danced just as I did when I first started twenty years ago. The first teacher I engaged probably told me the truth. She said I was all wrong; I would just have to forget everything and begin all over again. But that took the heart out of me. I had no incentive to go on. So I quit her.
+
+"The next teacher may have been lying, but I liked it. She said nonchalantly that my dancing was a bit old-fashioned perhaps, but the fundamentals were all right, and she assured me I wouldn't have any trouble learning a few new steps. The first teacher had discouraged me by emphasizing my mistakes. This new teacher did the opposite. She kept praising the things I did right and minimizing my errors. 'You have a natural sense of rhythm,' she assured me. 'You really are a natural-born dancer.' Now my common sense tells me that I always have been and always will be a fourth-rate dancer; yet, deep in my heart, I still like to think that maybe she meant it. To be sure, I was paying her to say it; but why bring that up?
+
+"At any rate, I know I am a better dancer than I would have been if she hadn't told me I had a natural sense of rhythm. That encouraged me. That gave me hope. That made me want to improve."
+
+Tell your child, your spouse, or your employee that he or she is stupid or dumb at a certain thing, has no gift for it, and is doing it all wrong, and you have destroyed almost every incentive to try to improve. But use the opposite technique - be liberal with your encouragement, make the thing seem easy to do, let the other person know that you have faith in his ability to do it, that he has an undeveloped flair for it - and he will practice until the dawn comes in the window in order to excel.
+
+__If you want to help others to improve, remember ... • Principle 8 - Use encouragement. Make the fault seem easy to correct.__
+
+### 9 - Making People Glad To Do What You Want
