@@ -538,3 +538,43 @@ Tell your child, your spouse, or your employee that he or she is stupid or dumb 
 __If you want to help others to improve, remember ... • Principle 8 - Use encouragement. Make the fault seem easy to correct.__
 
 ### 9 - Making People Glad To Do What You Want
+Back in 1915, America was aghast. For more than a year, the nations of Europe had been slaughtering one another on a scale never before dreamed of in all the bloody annals of mankind. Could peace be brought about? No one knew. But Woodrow Wilson was determined to try. He would send a personal representative, a peace emissary, to counsel with the warlords of Europe.
+
+William Jennings Bryan, secretary of state, Bryan, the peace advocate, longed to go. He saw a chance to perform a great service and make his name immortal. But Wilson appointed another man, his intimate friend and advisor Colonel Edward M. House; and it was House's thorny task to break the unwelcome news to Bryan without giving him offense.
+
+"Bryan was distinctly disappointed when he heard I was to go to Europe as the peace emissary," Colonel House records in his diary. "He said he had planned to do this himself ...
+
+"I replied that the President thought it would be unwise for anyone to do this officially, and that his going would attract a great deal of attention and people would wonder why he was there. ..."
+
+You see the intimation? House practically told Bryan that he was too important for the job - and Bryan was satisfied.
+
+Colonel House, adroit, experienced in the ways of the world, was following one of the important rules of human relations: Always make the other person happy about doing the thing you suggest.
+
+I knew a man who had to refuse many invitations to speak, invitations extended by friends, invitations coming from people to whom he was obligated; and yet he did it so adroitly that the other person was at least contented with his refusal. How did he do it? Not by merely talking about the fact that he was too busy and too-this and too-that. No, after expressing his appreciation of the invitation and regretting his inability to accept it, he suggested a substitute speaker. In other words, he didn't give the other person any time to feel unhappy about the refusal, He immediately changed the other person's thoughts to some other speaker who could accept the invitation.
+
+The effective leader should keep the following guidelines in mind when it is necessary to change attitudes or behavior:  
+ • 1. Be sincere. Do not promise anything that you cannot deliver. Forget about the benefits to yourself and concentrate on the benefits to the other person.  
+ • 2. Know exactly what it is you want the other person to do.  
+ • 3. Be empathetic. Ask yourself what is it the other person really wants.  
+ • 4. Consider the benefits that person will receive from doing what you suggest.  
+ • 5. Match those benefits to the other person's wants.  
+ • 6. When you make your request, put it in a form that will convey to the other person the idea that he personally will benefit. We could give a curt order like this: " John, we have customers coming in tomorrow and I need the stockroom cleaned out. So sweep it out, put the stock in neat piles on the shelves and polish the counter." Or we could express the same idea by showing John the benefits he will get from doing the task: "John, we have a job that should be completed right away. If it is done now, we won't be faced with it later. I am bringing some customers in tomorrow to show our facilities. I would like to show them the stockroom, but it is in poor shape. If you could sweep it out, put the stock in neat piles on the shelves, and polish the counter, it would make us look efficient and you will have done your part to provide a good company image."
+Will John be happy about doing what you suggest? Probably not very happy, but happier than if you had not pointed out the benefits. Assuming you know that John has pride in the way his stockroom looks and is interested in contributing to the company image, he will be more likely to be cooperative. It also will have been pointed out to John that the job would have to be done eventually and by doing it now, he won't be faced with it later.
+It is naпve to believe you will always get a favorable reaction from other persons when you use these approaches, but the experience of most people shows that you are more likely to change attitudes this way than by not using these principles - and if you increase your successes by even a mere 10 percent, you have become 10 percent more effective as a leader than you were before - and that is your benefit.
+People are more likely to do what you would like them to do when you use ...
+
+__Principle 9 - Make the other person happy about doing the thing you suggest. __
+
+
+> In A Nutshell Be A Leader  
+> A leader's job often includes changing your people's attitudes and behavior. Some suggestions to accomplish this:  
+> • Principle 1 - Begin with praise and honest appreciation.  
+> • Principle 2 - Call attention to people's mistakes indirectly.  
+> • Principle 3 - Talk about your own mistakes before criticizing the other person.  
+> • Principle 4 - Ask questions instead of giving direct orders.  
+> • Principle 5 - Let the other person save face.  
+> • Principle 6 - Praise the slightest improvement and praise every improvement. Be "hearty in your approbation and lavish in your praise."  
+> • Principle 7 - Give the other person a fine reputation to live up to. • Principle 8 - Use encouragement. Make the fault seem easy to correct.  
+> • Principle 9 - Make the other person happy about doing the thing you suggest.  
+
+# Part 5 - Letters That Produced Miraculous Results
