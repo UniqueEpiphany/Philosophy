@@ -578,3 +578,28 @@ __Principle 9 - Make the other person happy about doing the thing you suggest. _
 > • Principle 9 - Make the other person happy about doing the thing you suggest.  
 
 # Part 5 - Letters That Produced Miraculous Results
+
+Simple letter, isn't it? But it produced "miracles" by asking the other person to do a small favour—the performing of which gave him a feeling of importance.
+
+That psychology will work, regardless of whether you are selling asbestos roofs or touring Europe in a Ford.
+
+
+Remember, we all crave appreciation and recognition, and will do almost anything to get it. But nobody wants insincerity. Nobody wants flattery.
+
+Let me repeat: the principles taught in this book will work only when they come from the heart. I am not advocating a bag of tricks. I am talking about a new way of life.
+
+# Part VI: Seven Rules for Making Your Home Life Happier
+
+### 1 - How To Dig Your Marital Grave In The Quickest Possible Way
+
+That is what nagging accomplished for Eugenic. True, she sat on the throne of France. True, she was the most beautiful woman in the world. But neither royalty nor beauty can keep love alive amidst the poisonous fumes of nagging. Eugenic could have raised her voice like Job of old and have wailed: "The thing which I greatly feared is come upon me." Come upon her? She brought it upon herself, poor woman, by her jealousy and her nagging. Of all the sure-fire, infernal devices ever invented by all the devils in hell for destroying love, nagging is the deadliest. It never fails. Like the bite of the king cobra, it always destroys, always kills.
+
+The wife of Count Leo Tolstoi discovered that—after it was too late. Before she passed away, she confessed to her daughters: "I was the cause of your father's death." Her daughters didn't reply. They were both crying. They knew their mother was telling the truth. They knew she had killed him with her constant complaining, her eternal criticisms, and her eternal nagging. Yet Count Tolstoi and his wife ought, by all odds, to have been happy. He was one of the most famous novelists of all time. Two of his masterpieces, War and Peace and Anna Karenina will forever shine brightly among the literary glories of earth.
+
+Mrs Lincoln's jealousy was so foolish, so fierce, so incredible, that merely to read about some of the pathetic and disgraceful scenes she created in public—merely reading about them seventy-five years later makes one gasp with astonishment. She finally went insane; and perhaps the most charitable thing one can say about her is that her disposition was probably always affected by incipient insanity.
+
+Did all this nagging and scolding and raging change Lincoln? In one way, yes. It certainly changed his attitude toward her. It made him regret his unfortunate marriage, and it made him avoid her presence as much as possible.
+
+__So, if you want to keep your home life happy, • Rule 1 is: Don't, don't nag!!!__
+
+### 2 - Love And Let Live
