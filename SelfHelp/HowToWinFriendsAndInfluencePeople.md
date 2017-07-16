@@ -603,3 +603,100 @@ Did all this nagging and scolding and raging change Lincoln? In one way, yes. It
 __So, if you want to keep your home life happy, • Rule 1 is: Don't, don't nag!!!__
 
 ### 2 - Love And Let Live
+
+As Henry James put it: "The first thing to learn in. intercourse with others is noninterference with their own peculiar ways of being happy, provided those ways do not assume to interfere by violence with ours."
+
+Or, as Leland Foster Wood in his book, Growing Together in the Family, has observed: "Success in marriage is much more than a matter of finding the right person; it is also a matter of being the right person."
+
+__So, if you want your home life to be happy, • Rule 2 is: Don't try to make your partner over.__
+
+### 3 - Do This And You'll Be Looking Up The Time-Tables To Reno
+
+Dorothy Dix, America's premier authority on the causes of marital unhappiness, declares that more than fifty per cent of all marriages are failures; and she knows that one of the reasons why so many romantic dreams break up on the rocks of Reno is criticism—futile, heartbreaking criticism.
+
+So, if you want to keep your home life happy, remember Rule 3: Don't criticize.
+
+### 4 - A Quick Way To Make Everybody Happy
+
+"Most Men when seeking wives," says Paul Popenoe, Director of the Institute of Family Relations in Los Angeles, "are not looking for executives but for someone with allure and willingness to flatter their vanity and make them feel superior. Hence the woman office manager may be invited to luncheon, once. But she quite possibly dishes out warmed-over remnants of her college courses on 'main currents in contemporary philosophy,' and may even insist on paying her own bill. Result: she thereafter lunches alone.
+
+"In contrast, the noncollegiate typist, when invited to luncheon, fixes an incandescent gaze on her escort and says yearningly, 'Now tell me some more about yourself.' Result: he tells the other fellows that 'she's no raving beauty, but I have never met a better talker.'"
+
+Men should express their appreciation of a woman's effort to look well and dress becomingly. All men forget, if they have ever realized it, how profoundly women are interested in clothes. For example, if a man and woman meet another man and woman on the street, the woman seldom looks at the other man; she usually looks to see how well the other woman is dressed.
+
+__There you are. So, if you want to keep your home life happy, one of the most important rules is • Rule 4: Give honest appreciation.__
+
+### 5 - They Mean So Much To A Woman
+
+From Time immemorial, flowers have been considered the language of love. They don't cost much, especially in season, and often they're for sale on the street corners. Yet, considering the rarity with which the average husband takes home a bunch of daffodils, you might suppose them to be as expensive as orchids and as hard to come by as the edelweiss which flowers on the cloud-swept cliffs of the Alps.
+
+Why wait until your wife goes to the hospital to give her a few flowers? Why not bring her a few roses tomorrow night? You like to experiment. Try it. See what happens.
+
+George M. Cohan, busy as he was on Broadway, used to telephone his mother twice a day up to the time of her death. Do you suppose he had startling news for her each time? No, the meaning of little attentions is this: it shows the person you love that you are thinking of her, that you want to please her, and that her happiness and welfare are very dear, and very near, to your heart.
+
+Too many men underestimate the value of these small, everyday attentions. As Gaynor Maddox said in an article in the Pictorial Review: "The American home really needs a few new vices. Breakfast in bed, for instance, is one of those amiable dissipations a greater number of women should be indulged in. Breakfast in bed to a woman does much the same thing as a private club for a man."
+
+"I shall pass this way but once; any good, therefore, that I can do or any kindness that I can show to any human being, let me do it now. Let me not defer nor neglect it, for I shall not pass this way again."
+
+__So, if you want to keep your home life happy, • Rule 5 is: Pay little attentions.__
+
+### 6 - If You Want To Be Happy, Don't Neglect This One
+
+"Next to care in choosing a partner,". says Mrs Damrosch, "I should place courtesy after marriage. If young wives would only be as courteous to their husbands as to strangers! Any man will run from a shrewish tongue."
+
+Rudeness is the cancer that devours love. Everyone knows this, yet it's notorious that we are more polite to strangers than we are to our own relatives. We wouldn't dream of interrupting strangers to say, "Good heavens, are you going to tell that old story again!" We wouldn't dream of opening our friends' mail without permission, or prying into their personal secrets. And it's only the members of our own family, those who are nearest and dearest to us, that we dare insult for their trivial faults.
+
+Again to quote Dorothy Dix: "It is an amazing but true thing that practically the only people who ever say mean, insulting, wounding things to us are those of our own households.
+
+"Courtesy," says Henry Clay Risner, "is that quality of heart that overlooks the broken gate and calls attention to the flowers in the yard beyond the gate." Courtesy is just as important to marriage as oil is to your motor.
+
+William James once wrote an essay called "On a Certain Blindness in Human Beings." It would be worth a special trip to your nearest library to get that essay and read it. "Now the blindness in human beings of which this discourse will treat," he wrote, "is the blindness with which we all are afflicted in regard to the feelings of creatures and people different from ourselves."
+
+"The blindness with which we all are afflicted." Many men who wouldn't dream of speaking sharply to a customer, or even to their partners in business, think nothing of barking at their wives. Yet, for their personal happiness, marriage is far more important to them, far more vital, than business.
+
+The average man who is happily married is happier by far than the genius who lives in solitude. Turgenev, the great Russian novelist, was acclaimed all over the civilized world. Yet he said: "I would give up all my genius, and all my books, if there were only some woman, somewhere, who cared whether or not I came home late for dinner."
+
+What are the chances of happiness in marriage anyway? Dorothy Dix, as we have already said, believes that more than half of them are failures; but Dr Paul Popenoe thinks otherwise. He says: "A man has a better chance of succeeding in marriage than in any other enterprise he may go into. Of all the men that go into the grocery business, 70 per cent fail. Of the men and women who enter matrimony, 70 per cent succeed."
+
+
+Dorothy Dix sums the whole thing up like this: "Compared with marriage," she says, "being born is a mere episode in our careers, and dying a trivial incident.
+
+"No woman can ever understand why a man doesn't put forth the same effort to make his home a going concern as he does to make his business or profession a success.
+
+"But, although to have a contented wife and a peaceful and happy home means more to a man than to make a million dollars, not one man in a hundred ever gives any real serious thought or makes any honest effort to make his marriage a success. He leaves the most important thing in his life to chance, and he wins out or loses, according to whether fortune is with him or not. Women can never understand why their husbands refuse to handle them diplomatically, when it would be money in their pockets to use the velvet glove instead of the strong-arm method.
+
+"Every man knows that he can jolly his wife into doing anything, and doing without anything. He knows that if he hands her a few cheap compliments about what a wonderful manager she is, and how she helps him, she will squeeze every nickel. Every man knows that if he tells his wife how beautiful and lovely she looks in her last year's dress, she wouldn't trade it for the latest Paris importation. Every man knows that he can kiss his wife's eyes shut until she will be blind as a bat, and that he has only to give her a warm smack on the lips to make her dumb as an oyster.
+
+"And every wife knows that her husband knows these things about her, because she has furnished him with a complete diagram about how to work her. And she never knows whether to be mad at him or disgusted with him, because he would rather fight with her and pay for it in having to eat bad meals, and have his money wasted, and buy her new frocks and limousines and pearls, than to take the trouble to flatter her a little and treat her the way she is begging to be treated."
+
+__So, if you want to keep your home life happy. • Rule 6 is: Be courteous.__
+
+### 7 - Don't Be A "Marriage Illiterate"
+
+Dr Katherine Bement Davis, general secretary of the Bureau of Social Hygiene, once induced a thousand married women to reply very frankly to a set of intimate questions. The result was shocking—an incredibly shocking comment upon the sexual unhappiness of the average American adult. After perusing the answers she received from these thousand married women, Dr Davis published without hesitation her conviction that one of the chief causes of divorce in this country is physical mismating.
+
+Dr Paul Popenoe, as head of the Institute of Family Relations in Los Angeles, has reviewed thousands of marriages and he is one of America's foremost authorities on home life. According to Dr Popenoe, failure in marriage is usually due to four causes. He lists them in this order:
+
+• 1. Sexual maladjustment.  
+• 2. Difference of opinion as to the way of spending leisure time.   
+• 3. Financial difficulties.  
+• 4. Mental, physical, or emotional abnormalities.  
+
+"Sex," says the famous psychologist, John B. Watson, "is admittedly the most important subject in life. It is admittedly the thing which causes the most ship-wrecks in the happiness of men and women." And I have heard a number of practicing physicians in speeches before my own classes say practically the same thing. Isn't it pitiful, then, that in the twentieth century, with all of our books and all of our education, marriages should be destroyed and lives wrecked by ignorance concerning this most primal and natural instinct?
+
+"Happy marriages," says Dr Butterfield, "are rarely the product of chance: they are architectural in that they are intelligently and deliberately planned."
+
+__• Rule 7 of "How to Make Your Home Life Happier" is: 'Read a good book on the sexual side of marriage.__
+
+> In a Nutshell   
+> Seven Rules For Making Your Home Life Happier  
+> • Rule 1: Don't nag.  
+> • Rule 2: Don't try to make your partner over.   
+> • Rule 3: Don't criticize.   
+> • Rule 4: Give honest appreciation.  
+> • Rule 5: Pay little attentions.  
+> • Rule 6: Be courteous.  
+> • Rule 7: Read a good book on the sexual side of marriage.  
+
+
+
