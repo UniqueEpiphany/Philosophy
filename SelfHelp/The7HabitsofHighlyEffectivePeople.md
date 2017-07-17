@@ -65,6 +65,27 @@ The more closely our maps or paradigms are aligned with these principles or natu
 
 ### Principles of Growth and Change
 
+The glitter of the personality ethic, the massive appeal, is that there is some quick and easy way to achieve quality of life -- personal effectiveness and rich, deep relationships with other people -- without going through the natural process of work and growth that makes it possible.
+
+The personality ethic is illusory and deceptive. And trying to get high-quality results with its techniques and quick fixes is just about as effective as trying to get to some place in Chicago using a map of Detroit.
+
+Today we come across an individual who behaves like an automaton, who does not know or understand himself, and the only person that he knows is the person that he is supposed to be, whose meaningless chatter has replaced communicative speech, whose synthetic smile has replaced genuine laughter, and whose sense of dull despair has taken the place of genuine pain. Two statements may be said concerning this individual. One is that he suffers from defects of spontaneity and individuality which may seem to be incurable. At the same time it may be said of him he does not differ essentially from the millions of the rest of us who walk upon this earth.
+
+I have seen the consequences of attempting to shortcut this natural process of growth often in the business world, where executives attempt to "buy" a new culture of improved productivity, quality, morale, and customer service with the strong speeches, smile training, and external interventions, or through mergers, acquisitions, and friendly or unfriendly takeovers. But they ignore the low-trust climate produced by such manipulations. When these methods don't work, they look for other personality ethic techniques that will -- all the time ignoring and violating the natural principles and processes on which high-trust culture is based.
+
+My experience has been that there are times to teach and times not to teach. When relationships are strained and the air charged with emotion, an attempt to teach is often perceived as a form of judgment and rejection. But to take the child alone, quietly, when the relationship is good and to discuss the teaching or the value seems to have much greater impact. It may have been that the emotional maturity to do that was beyond my level of patience and internal control at the time.
+
+Perhaps a sense of possessing needs to come before a sense of genuine sharing. Many people who give mechanically or refuse to give and share in their marriages and families may never have experienced what it means to possess themselves, their own sense of identity and self-worth. Really helping our children grow may involve being patient enough to allow them the sense of possession as well as being wise enough to teach them the value of giving and providing the example ourselves.
+
+### The Way We See the Problem is the Problem
+
+Whether people see it or not, many are becoming disillusioned with the empty promises of the personality ethic. As I travel around the country and work with organizations, I find that long-term thinking executives are simply turned off by psyche up psychology and "motivational" speakers who have nothing more to share than entertaining stories mingled with platitudes.
+They want substance; they want process. They want more than aspirin and band-aids. They want to solve the chronic underlying problems and focus on the principles that bring long-term results.
+
+### A New Level of Thinking
+
+
+
 
 
 
