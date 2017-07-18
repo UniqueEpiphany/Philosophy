@@ -84,10 +84,41 @@ They want substance; they want process. They want more than aspirin and band-aid
 
 ### A New Level of Thinking
 
+Albert Einstein observed, "The significant problems we face cannot be solved at the same level of thinking we were at when we created them."
 
+As we look around us and within us and recognize the problems created as we live and interact within the personality ethic, we begin to realize that these are deep, fundamental problems that cannot be solved on the superficial level on which they were created.
 
+We need a new level, a deeper level of thinking -- a paradigm based on the principles that accurately describe the territory of effective human being and interacting -- to solve these deep concerns.
 
+This new level of thinking is what Seven Habits of Highly Effective People is about. It's a principle-centered, character-based, "Inside-Out" approach to personal and interpersonal effectiveness.
 
+"Inside-Out" means to start first with self; even more fundamentally, to start with the most inside part of self -- with your paradigms, your character, and your motives.
 
+It says if you want to have a happy marriage, be the kind of person who generates positive energy and sidesteps negative energy rather than empowering it. If you want to have a more pleasant, cooperative teenager, be a more understanding, empathic, consistent, loving parent. If you want to have more freedom, more latitude in your job, be a more responsible, a more helpful, a more contributing employee. If you want to be trusted, be trustworthy. If you want the secondary greatness of recognized talent, focus first on primary greatness of character.
 
+The Inside-Out approach says that Private Victories TM precede Public Victories TM, that making and keeping promises to ourselves precedes making and keeping promises to others. It says it is futile to put personality ahead of character, to try to improve relationships with others before improving ourselves.
+
+Inside-Out is a process -- a continuing process of renewal based on the natural laws that govern human growth and progress. It's an upward spiral of growth that leads to progressively higher forms of responsible independence and effective interdependence.
+
+As we sincerely seek to understand and integrate these principles into our lives, I am convinced we will discover and rediscover the truth of T. S. Eliot's observation: "We must not cease from exploration and the end of all our exploring will be to arrive where we began and to know the place for the first time."
+
+# The Seven Habits -- An Overview
+
+> We are what we repeatedly do. Excellence, then, is not an act, but a habit. -- Aristotl
+
+Our character, basically, is a composite of our habits. "Sow a thought, reap an action; sow an action, reap a habit; sow a habit, reap a character; sow a character, reap a destiny," the maxim goes.
+
+Habits are powerful factors in our lives. Because they are consistent, often unconscious patterns, they constantly, daily, express our character and produce our effectiveness or ineffectiveness.
+
+### "Habits" Defined
+
+For our purposes, we will define a habit as the intersection of knowledge, skill, and desire. Knowledge is the theoretical paradigm, the what to do and the why. Skill is the how to do. And desire is the motivation, the want to do. In order to make something a habit in our lives, we have to have all three.
+
+I may be ineffective in my interactions with my work associates, my spouse, or my children because I constantly tell them what I think, but I never really listen to them. Unless I search out correct principles of human interaction, I may not even know I need to listen.
+
+Even if I do know that in order to interact effectively with others I really need to listen to them, I may not have the skill. I may not know how to really listen deeply to another human being.
+
+But knowing I need to listen and knowing how to listen is not enough. Unless I want to listen, unless I have the desire, it won't be a habit in my life. Creating a habit requires work in all three dimensions.
+
+### The Maturity Continuum TM
 
