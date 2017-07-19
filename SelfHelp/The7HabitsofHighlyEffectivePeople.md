@@ -121,4 +121,103 @@ Even if I do know that in order to interact effectively with others I really nee
 But knowing I need to listen and knowing how to listen is not enough. Unless I want to listen, unless I have the desire, it won't be a habit in my life. Creating a habit requires work in all three dimensions.
 
 ### The Maturity Continuum TM
+Life is, by nature, highly interdependent. To try to achieve maximum effectiveness through independence is like trying to play tennis with a golf club -- the tool is not suited to the reality.
+
+Interdependence is a far more mature, more advanced concept. If I am physically interdependent, I am self-reliant and capable, but I also realize that you and I working together can accomplish far more than, even at my best, I could accomplish alone. If I am emotionally interdependent, I derive a great sense of worth within myself, but I also recognize the need for love, for giving, and for receiving love from others. If I am intellectually interdependent, I realize that I need the best thinking of other people to join with my own.
+
+# Part Two
+
+## Habit 1: Be Proactive -- Principles of Personal Visio
+We are not our feelings. We are not our moods. We are not even our thoughts. The very fact that we can think about these things separates us from them and from the animal world. Self-awareness enables us to stand apart and examine even the way we "see" ourselves -- our paradigm, the most fundamental paradigm of effectiveness. It affects not only our attitudes and behaviors, but also how we see other people. It becomes our map of the basic nature of mankind.
+
+In fact, until we take how we see ourselves (and how we see others) into account, we will be unable to understand how others see and feel about themselves and their world. Unaware, we will be unable to understand how others see and feel about themselves and their world. Unaware, we will project our intentions on their behavior and call ourselves objective.
+
+##### "Proactivity" Defined
+
+Look at the word responsibility -- "response-ability" -- the ability to choose your response. Highly proactive people recognize that responsibility. They do not blame circumstances, conditions, or conditioning for their behavior. Their behavior is a product of their own conscious choice, based on values, rather than a product of their conditions, based on feeling.
+
+Because we are, by nature, proactive, if our lives are a function of conditioning and conditions, it is because we have, by conscious decision or by default, chosen to empower those things to control us.
+
+The ability to subordinate an impulse to a value is the essence of the proactive person. Reactive people are driven by feelings, by circumstances, by conditions, by their environment. Proactive people are driven by values -- carefully thought about, selected and internalized values.
+
+Proactive people are still influenced by external stimuli, whether physical, social, or psychological. But their response to the stimuli, conscious or unconscious, is a value-based choice or response.
+
+As Eleanor Roosevelt observed, "No one can hurt you without your consent." In the words of Gandhi, "They cannot take away our self respect if we do not give it to them." It is our willing permission, our consent to what happens to us, that hurts us far more than what happens to us in the first place.
+
+I admit this is very hard to accept emotionally, especially if we have had years and years of explaining our misery in the name of circumstance or someone else's behavior. But until a person can say deeply and honestly, "I am what I am today because of the choices I made yesterday," that person cannot say, "I choose otherwise."
+
+It's not what happens to us, but our response to what happens to us that hurts us. Of course, things can hurt us physically or economically and can cause sorrow. But our character, our basic identity, does not have to be hurt at all. In fact, our most difficult experiences become the crucibles that forge our character and develop the internal powers, the freedom to handle difficult circumstances in the future and to inspire others to do so as well.
+
+Viktor Frankl suggests that there are three central values in life -- the experiential, or that which happens to us; the creative, or that which we bring into existence; and the attitudinal, or our response in difficult circumstances such as terminal illness.
+
+##### Taking the Initiative
+Holding people to the responsible course is not demeaning; it is affirming. Proactivity is part of human nature, and although the proactive muscles may be dormant, they are there. By respecting the proactive nature of other people, we provide them with at least one clear, undistorted reflection from the social mirror.
+
+Of course, the maturity level of the individual has to be taken into account. We can't expect high creative cooperation from those who are deep into emotional dependence. But we can, at least, affirm their basic nature and create an atmosphere where people can seize opportunities and solve problems in an increasingly self-reliant way.
+
+##### Listening to our Language
+
+Reactive Language: There's nothing I can do. That's just the way I am. He makes me so mad.
+They won't allow that. I have to do that. I can't. I must. If only.
+Proactive Language: Let's look at our alternatives. I can choose a different approach. I control
+my own feelings. I can create an effective presentation. I will choose an appropriate response. I choose. I prefer. I will.
+
+That language comes from a basic paradigm of determinism. And the whole spirit of it is the transfer of responsibility. I am not responsible, not able to choose my response.
+
+In the great literature of all progressive societies, love is a verb. Reactive people make it a feeling. They're driven by feelings. Hollywood has generally scripted us to believe that we are not responsible, that we are a product of our feelings. But the Hollywood script does not describe the reality. If our feelings control our actions, it is because we have abdicated our responsibility and empowered them to do so.
+
+Proactive people make love a verb. Love is something you do: the sacrifices you make, the giving of self, like a mother bringing a newborn into the world. If you want to study love, study those who sacrifice for others, even for people who offend or do not love in return. If you are a parent, look at the love you have for the children you sacrificed for. Love is a value that is actualized through loving actions. Proactive people subordinate feelings to values. Love, the feeling, can be recaptured.
+
+##### Circle of Concern. Circle of Influence.
+Proactive people focus their efforts in the Circle of Influence. They work on the things they can do something about. The nature of their energy is positive, enlarging and magnifying, causing their Circle of Influence to increase.
+
+Reactive people, on the other hand, focus their efforts in the Circle of Concern. They focus on the weakness of other people, the problems in the environment, and circumstances over which they have no control. Their focus results in blaming and accusing attitudes, reactive language, and increased feelings of victimization. The negative energy generated by that focus, combined with neglect in areas they could do something about, causes their Circle of Influence to shrink.
+
+As long as we are working in our Circle of Concern, we empower the things within it to control us. We aren't taking the proactive initiative necessary to effect positive change.
+
+##### Expanding the Circle of Influence
+
+But one of the executives was proactive. He was driven by values, not feelings. He took initiative -- he anticipated, he empathized, he read the situation. He was not blind to the president's weaknesses; but instead of criticizing them, he would compensate for them. Where the president was weak in his style, he'd try to buffer his own people and make such weaknesses irrelevant. And he'd work with the president's strengths -- his vision, talent, creativity.
+
+This man focused on his Circle of Influence. He was treated like a gofer, also. But he would do more than what was expected. He anticipated the president's need. He read with empathy the president's underlying concern, so when he presented information, he also gave his analysis and his recommendations based on that analysis.
+
+As I sat one day with the president in an advisory capacity, he said, "Stephen, I just can't believe what this man has done. He's not only given me the information I requested, but he's provided additional information that's exactly what we needed. He even gave me his analysis of it in terms of my deepest concerns, and a list of his recommendations.
+
+"The recommendations are consistent with the analysis, and the analysis is consistent with the data. He's remarkable! What a relief not to have to worry about this part of the business."
+
+At the next meeting, it was "go for this" and "go for that" to all the executives but one. To this man, it was "What's your opinion?" His Circle of Influence had grown.
+
+This caused quite a stir in the organization. The reactive minds in the executive corridors began shooting their vindictive ammunition at this proactive man.
+
+It's the nature of reactive people to absolve themselves of responsibility. It's so much safer to say, "I am not responsible." If I say "I am responsible," I might have to say, "I am irresponsible." It would be very hard for me to say that I have the power to choose my response and that the response I have chosen has resulted in my involvement in a negative, collusive environment, especially if for years I have absolved myself of responsibility for results in the name of someone else's weaknesses.
+
+There are some people who interpret "proactive" to mean pushy, aggressive, or insensitive; but that isn't the case at all. Proactive people aren't pushy. They're smart, they're value driven, they read reality, and they know what's needed.
+
+Look at Gandhi. While his accusers were in the legislative chambers criticizing him because he wouldn't join in their Circle of Concern rhetoric condemning the British Empire for their subjugation of the Indian people, Gandhi was out in the rice paddies, quietly, slowly, imperceptibly expanding his Circle of Influence with the field laborers. A ground swell of support, of trust, of confidence followed him through the countryside. Though he held no office or political position, through compassion, courage, fasting, and moral persuasion he eventually brought England to its knees, breaking political domination of 300 million people with the power of his greatly expanded Circle of Influence.
+
+
+##### The "Have's" and the "Be's"
+
+The proactive approach is to change from the Inside-Out: to be different, and by being different, to effect positive change in what's out there -- I can be more resourceful, I can be more diligent, I can be more creative, I can be more cooperative.
+
+If I have a problem in my marriage, what do I really gain by continually confessing my wife's sins? By saying I'm not responsible, I make myself a powerless victim; I immobilize myself in a negative situation. I also diminish my ability to influence her -- my nagging, accusing, critical attitude only makes her feel validated in her own weakness. My criticism is worse than the conduct I want to correct. My ability to positively impact the situation withers and dies.
+
+If I really want to improve my situation, I can work on the one thing over which I have control -- myself. I can stop trying to shape up my wife and work on my own weaknesses. I can focus on being a great marriage partner, a source of unconditional love and support. Hopefully, my wife will feel the power of proactive example and respond in kind. But whether she does or doesn't, the most positive way I can influence my situation is to work on myself, on my being.
+
+There are so many ways to work in the Circle of Influence -- to be a better listener, to be a more loving marriage partner, to be a better student, to be a more cooperative and dedicated employee. Sometimes the most proactive thing we can do is to be happy, just to genuinely smile. Happiness, like unhappiness, is a proactive choice. There are things, like the weather, that our Circle of Influence will never include. But as proactive people, we can carry our own physical or social weather with us. We can be happy and accept those things that at present we can't control, while we focus our efforts on the things that we can.
+
+##### The Other End of the Stick
+
+
+
+
+
+
+
+
+
+
+
+
+
 
