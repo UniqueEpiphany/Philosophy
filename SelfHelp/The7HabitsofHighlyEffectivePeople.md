@@ -301,6 +301,8 @@ It also means to begin each day with those values firmly in mind. Then as the vi
 ##### A Personal Mission Statement
 The most effective way I know to Begin with the End in Mind is to develop a personal mission statement or philosophy or creed. It focuses on what you want to be (character) and to do (contributions and achievements) and on the values or principles upon which being and doing are based.
 
+You could call a personal mission statement a personal constitution. Like the United States Constitution, it's fundamentally changeless. In over 200 years, there have been only 26 amendments, 10 of which were in the original Bill of Rights.
+
 ##### At the Center
 
 Whatever is at the center of our life will be the source of our security, guidance, wisdom, and power.
