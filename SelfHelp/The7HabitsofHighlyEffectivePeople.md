@@ -313,11 +313,53 @@ Guidance means your source of direction in life. Encompassed by your map, your i
 
 Wisdom is your perspective on life, your sense of balance, your understanding of how the various parts and principles apply and relate to each other. It embraces judgment, discernment, comprehension. It is a gestalt or oneness, an integrated wholeness.
 
+
 Power is the faculty or capacity to act, the strength and potency to accomplish something. It is the vital energy to make choices and decisions. It also includes the capacity to overcome deeply embedded habits and to cultivate higher, more effective ones.
 
 These four factors -- security, guidance, wisdom, and power -- are interdependent. Security and clear guidance bring true wisdom, and wisdom becomes the spark or catalyst to release and direct power. When these four factors are present together, harmonized and enlivened by each other, they create the great force of a noble personality, a balanced character, a beautifully integrated individual.
 
-##### Alternative Centers
+##### A Principle Center
+By centering our lives on correct principles, we create a solid foundation for development of the four life-support factors
+Our security comes from knowing that, unlike other centers based on people or things which are subject to frequent and immediate change, correct principles do not change. We can depend on them.
+
+Principles are deep, fundamental truths, classic truths, generic common denominators. They are tightly interwoven threads running with exactness, consistency, beauty, and strength through the fabric of life.
+
+Admittedly, we're not omniscient. Our knowledge and understanding of correct principles is limited by our own lack of awareness of our true nature and the world around us and by the flood of trendy philosophies and theories that are not in harmony with correct principles. These ideas will have their season of acceptance, but, like many before them, they won't endure because they're built on false foundations.
+
+By centering our lives on timeless, unchanging principles, we create a fundamental paradigm of effective living. It is the center that puts all other centers in perspective.
+
+##### Identifying Roles and Goals
+An effective goal focuses primarily on results rather than activity. It identifies where you want to be, and, in the process, helps you determine where you are. It gives you important information on how to get there, and it tells you when you have arrived. It unifies your efforts and energy. It gives meaning and purpose to all you do. And it can finally translate itself into daily activities so that you are proactive, you are in charge of your life, you are making happen each day the things that will enable you to fulfill your personal mission statement.
+
+Roles and goals give structure and organized direction to your personal mission. If you don't yet have a personal mission statement, it's a good place to begin. Just identifying the various areas of your life and the two or three important results you feel you should accomplish in each area to move ahead gives you an overall perspective of your life and a sense of direction.
+
+# Habit 3: Put First Things First TM -- Principles of Personal Managemen
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
