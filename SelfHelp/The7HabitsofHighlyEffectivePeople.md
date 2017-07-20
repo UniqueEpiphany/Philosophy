@@ -208,12 +208,114 @@ There are so many ways to work in the Circle of Influence -- to be a better list
 
 ##### The Other End of the Stick
 
+While we are free to choose our actions, we are not free to choose the consequences of those actions. Consequences are governed by natural law. They are out in the Circle of Concern. We can decide to step in front of a fast-moving train, but we cannot decide what will happen when the train hits us.
 
+We can decide to be dishonest in our business dealings. While the social consequences of that decision may vary depending on whether or not we are found out, the natural consequences to our basic character are a fixed result.
 
+Our behavior is governed by principles. Living in harmony with them brings positive consequences; violating them brings negative consequences. We are free to choose our response in any situation, but in doing so, we choose the attendant consequence. "When we pick up one end of the stick, we pick up the other."
 
+Undoubtedly, there have been times in each of our lives when we have picked up what we later felt was the wrong stick. Our choices have brought consequences we would rather have lived without. If we had the choice to make over again, we would make it differently. We call these choices mistakes, and they are the second thing that merits our deeper thought.
 
+For those filled with regret, perhaps the most needful exercise of proactivity is to realize that past mistakes are also out there in the Circle of Concern. We can't recall them, we can't undo them, we can't control the consequences that came as a result.
 
+But not to acknowledge a mistake, not to correct it and learn from it, is a mistake of a different order. It usually puts a person on a self-deceiving, self-justifying path, often involving rationalization (rational lies) to self and to others. This second mistake, this cover-up, empowers the first, giving it disproportionate importance, and causes far deeper injury to self.
 
+It is not what others do or even our own mistakes that hurt us the most; it is our response to those things. Chasing after the poisonous snake that bites us will only drive the poison through our entire system. It is far better to take measures immediately to get the poison out.
+
+Our response to any mistake affects the quality of the next moment. It is important to immediately admit and correct our mistakes so that they have no power over that next moment and we are empowered again.
+
+##### Making and Keeping Commitments
+
+At the very heart of our Circle of Influence is our ability to make and keep commitments and promises. The commitments we make to ourselves and to others, and our integrity to those commitments, is the essence and clearest manifestation of our proactivity.
+
+It is also the essence of our growth. Through our human endowments of self-awareness and conscience, we become conscious of areas of weakness, areas for improvement, areas of talent that could be developed, areas that need to be changed or eliminated from our lives. Then, as we recognize and use our imagination and independent will to act on that awareness -- making promises, setting goals, and being true to them -- we build the strength of character, the being, that makes possible every other positive thing in our lives.
+
+It is here that we find two ways to put ourselves in control of our lives immediately. We can make a promise -- and keep it. Or we can set a goal -- and work to achieve it. As we make and keep commitments, even small commitments, we begin to establish an inner integrity that gives us the awareness of self-control and the courage and strength to accept more of the responsibility for our own lives. By making and keeping promises to ourselves and others, little by little, our honor becomes greater than our moods.
+
+The power to make and keep commitments to ourselves is the essence of developing the basic habits of effectiveness. Knowledge, skill, and desire are all within our control. We can work on any one to improve the balance of the three. As the area of intersection becomes larger, we more deeply internalize the principles upon which the habits are based and create the strength of character to move us in a balanced way toward increasing effectiveness in our lives.
+
+# Habit 2: Begin with the End in Mind TM
+
+##### What it Means to "Begin with the End in Mind"
+To Begin with the End in Mind means to start with a clear understanding of your destination. It means to know where you're going so that you better understand where you are now and so that the steps you take are always in the right direction.
+It's incredibly easy to get caught up in an activity trap, in the busy-ness of life, to work harder and harder at climbing the ladder of success only to discover it's leaning against the wrong wall. It is possible to be busy -- very busy -- without being very effective.
+
+People often find themselves achieving victories that are empty, successes that have come at the expense of things they suddenly realize were far more valuable to them. People from every walk of life -- doctors, academicians, actors, politicians, business professionals, athletes, and plumbers -- often struggle to achieve a higher income, more recognition or a certain degree of professional competence, only to find that their drive to achieve their goal blinded them to the things that really mattered most and now are gone.
+
+How different our lives are when we really know what is deeply important to us, and, keeping that picture in mind, we manage ourselves each day to be and to do what really matters most. If the ladder is not leaning against the right wall, every step we take just gets us to the wrong place faster. We may be very busy, we may be very efficient, but we will also be truly effective only when we Begin with the End in Mind.
+
+##### All Things Are Created Twice
+
+"Begin with the End in Mind" is based on the principle that all things are created twice. There's a mental or first creation, and a physical or second creation to all things.
+
+Take the construction of a home, for example. You create it in every detail before you ever hammer the first nail into place. You try to get a very clear sense of what kind of house you want. If you want a family-centered home, you plan a family room where it would be a natural gathering place. You plan sliding doors and a patio for children to play outside. You work with ideas. You work with your mind until you get a clear image of what you want to build.
+
+Then you reduce it to blueprint and develop construction plans. All of this is done before the earth is touched. If not, then in the second creation, the physical creation, you will have to make expensive changes that may double the cost of your home.
+
+The carpenter's rule is "measure twice, cut once." You have to make sure that the blueprint, the first creation, is really what you want, that you've thought everything through. Then you put it into bricks and mortar. Each day you go to the construction shed and pull out the blueprint to get marching orders for the day. You Begin with the End in Mind.
+
+To varying degrees, people use this principle in many different areas of life. Before you go on a trip, you determine your destination and plan out the best route. Before you plant a garden, you plan it out in your mind, possibly on paper. You create speeches on paper before you give them, you envision the landscaping in your yard before you landscape it, you design the clothes you make before you thread the needle.
+
+To the extent to which we understand the principle of two creations and accept the responsibility for both, we act within and enlarge the borders of our Circle of Influence. To the extent to which we do not operate in harmony with this principle and take charge of the first creation, we diminish it.
+
+##### By Design or Default
+
+It's a principle that all things are created twice, but not all first creations are by conscious design. In our personal lives, if we do not develop our own self-awareness and become responsible for first creations, we empower other people and circumstances outside our Circle or Influence to shape much of our lives by default. We reactively live the scripts handed to us by family, associates, other people's agendas, the pressures of circumstance -- scripts from our earlier years, from our training, our conditioning.
+
+These scripts come from people, not principles. And they rise out of our deep vulnerabilities, our deep dependency on others and our need for acceptance and love, for belonging, for a sense of importance and worth, for a feeling that we matter.
+
+##### Leadership and Management -- The Two Creations
+
+__Management is a bottom-line focus: How can I best accomplish certain things? Leadership deals with the top line: What are the things I want to accomplish? In the words of both Peter Drucker and Warren Bennis, "Management is doing things right; leadership is doing the right things." Management is efficiency in climbing the ladder of success; leadership determines whether the ladder is leaning against the right wall.__
+
+As individuals, groups, and businesses, we're often so busy cutting through the undergrowth we don't even realize we're in the wrong jungle. And the rapidly changing environment in which we live makes effective leadership more critical than it has ever been -- in every aspect of independent and interdependent life.
+
+We are more in need of a vision or designation and a compass (a set of principles or directions) and less in need of a road map. We often don't know what the terrain ahead will be like or what we will need to go through it; much will depend on our judgment at the time. But an inner compass will always give us direction.
+
+Effectiveness -- often even survival -- does not depend solely on how much effort we expend, but on whether or not the effort we expend is in the right jungle. And the metamorphosis taking place in most every industry and profession demands leadership first and management second.
+
+In business, the market is changing so rapidly that many products and services that successfully met consumer tastes and needs a few years ago are obsolete today. Proactive powerful leadership must constantly monitor environmental change, particularly customer buying habits and motives, and provide the force necessary to organize resources in the right direction.
+
+Such changes as deregulation of the airline industry, skyrocketing costs of health care, and the great quality and quantity of imported cars impact the environment in significant ways. If industries do not monitor the environment, including their own work teams, and exercise the creative leadership to keep headed in the right direction, no amount of management expertise can keep them from failing.
+
+Efficient management without effective leadership is, as one individual phrased it, "like straightening deck chairs on the Titanic." No management success can compensate for failure in leadership. But leadership is hard because we're often caught in a management paradigm.
+
+I'm convinced that too often parents are also trapped in the management paradigm, thinking of control, efficiency, and rules instead of direction, purpose, and family feeling.
+
+And leadership is even more lacking in our personal lives. We're into managing with efficiency, setting and achieving goals before we have even clarified our values.
+
+##### Rescripting: Becoming Your Own First Creator
+
+As we previously observed, proactivity is based on the unique human endowment of self-awareness. The two additional unique human endowments that enable us to expand our proactivity and to exercise personal leadership in our lives are imagination and conscience.
+
+Through imagination, we can visualize the uncreated worlds of potential that lie within us. Through conscience, we can come in contact with universal laws or principles with our own singular talents and avenues of contribution, and with the personal guidelines within which we can most effectively develop them. Combined with self-awareness, these two endowments empower us to write our own script.
+
+Because we already live with many scripts that have been handed to us, the process of writing our own script is actually more a process of "rescripting," or Paradigm Shifting -- of changing some of the basic paradigms that we already have. As we recognize the ineffective scripts, the incorrect or incomplete paradigms within us, we can proactively begin to rescript ourselves.
+
+Because I am self-aware, because I have imagination and conscience, I can examine my deepest values. I can realize that the script I'm living is not in harmony with those values, that my life is not the product of my own proactive design, but the result of the first creation I have deferred to circumstances and other people. And I can change. I can live out of my imagination instead of my memory. I can tie myself to my limitless potential instead of my limiting past. I can become my own first creator.
+
+To Begin with the End in Mind means to approach my role as a parent, as well as my other roles in life, with my values and directions clear. It means to be responsible for my own first creation, to rescript myself so that the paradigms from which my behavior and attitude flow are congruent with my deepest values and in harmony with correct principles.
+
+It also means to begin each day with those values firmly in mind. Then as the vicissitudes, as the challenges come, I can make my decisions based on those values. I can act with integrity. I don't have to react to the emotion, the circumstance. I can be truly proactive, value driven, because my values are clear.
+
+##### A Personal Mission Statement
+The most effective way I know to Begin with the End in Mind is to develop a personal mission statement or philosophy or creed. It focuses on what you want to be (character) and to do (contributions and achievements) and on the values or principles upon which being and doing are based.
+
+##### At the Center
+
+Whatever is at the center of our life will be the source of our security, guidance, wisdom, and power.
+
+Security represents your sense of worth, your identity, your emotional anchorage, your self-esteem, your basic personal strength or lack of it.
+
+Guidance means your source of direction in life. Encompassed by your map, your internal frame of reference that interprets for you what is happening out there, are standards or principles or implicit criteria that govern moment-by-moment decision-making and doing.
+
+Wisdom is your perspective on life, your sense of balance, your understanding of how the various parts and principles apply and relate to each other. It embraces judgment, discernment, comprehension. It is a gestalt or oneness, an integrated wholeness.
+
+Power is the faculty or capacity to act, the strength and potency to accomplish something. It is the vital energy to make choices and decisions. It also includes the capacity to overcome deeply embedded habits and to cultivate higher, more effective ones.
+
+These four factors -- security, guidance, wisdom, and power -- are interdependent. Security and clear guidance bring true wisdom, and wisdom becomes the spark or catalyst to release and direct power. When these four factors are present together, harmonized and enlivened by each other, they create the great force of a noble personality, a balanced character, a beautifully integrated individual.
+
+##### Alternative Centers
 
 
 
