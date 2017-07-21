@@ -19,4 +19,35 @@ To conclude this section, let us mention briefly three supplemen- tary concepts 
 
 ##### Results to Be Expected by the Aggressive Investor
 
+We are thus led to the following logical if disconcerting conclu- sion: To enjoy a reasonable chance for continued better than average results, the investor must follow policies which are (1) inherently sound and promising, and (2) not popular on Wall Street.
+
+The enterprising investor under today’s conditions still has various possibilities of achieving better than average results. The huge list of marketable securities must include a fair number that can be identified as undervalued by logical and reasonably dependable standards.
+
+## COMMENTARY ON CHAPTER 1
+
+Graham’s definition of investing could not be clearer: “An invest- ment operation is one which, upon thorough analysis, promises safety of principal and an adequate return.” 1 Note that investing, according to Graham, consists equally of three elements:
+
+* you must thoroughly analyze a company, and the soundness of its underlying businesses, before you buy its stock;  
+* you must deliberately protect yourself against serious losses;  
+* you must aspire to “adequate,” not extraordinary, performance.  
+
+Graham urges you to invest only if you would be comfortable owning a stock even if you had no way of knowing its daily share price.
+
+People began believing that the test of an investment technique was simply whether it “worked.” If they beat the market over any period, no matter how dangerous or dumb their tactics, people boasted that they were “right.” But the intelligent investor has no inter- est in being temporarily right. To reach your long-term financial goals, you must be sustainably and reliably right.
+
+# CHAPTER 2 The Investor and Inflation
+
+This means, first, that the common-stock buyer at today’s prices—or tomorrow’s—will be running a real risk of having unsatisfactory results therefrom over a period of years. It took 25 years for Gen- eral Electric (and the DJIA itself) to recover the ground lost in the 1929–1932 debacle. Besides that, if the investor concentrates his portfolio on common stocks he is very likely to be led astray either by exhilarating advances or by distressing declines. This is particu- larly true if his reasoning is geared closely to expectations of fur- ther inflation. For then, if another bull market comes along, he will take the big rise not as a danger signal of an inevitable fall, not as a chance to cash in on his handsome profits, but rather as a vindica- tion of the inflation hypothesis and as a reason to keep on buying common stocks no matter how high the market level nor how low the dividend return. That way lies sorrow.
+
+## COMMENTARY ON CHAPTER 2
+
+##### TWO ACRONYMS TO THE RESCUE
+Fortunately, you can bolster your defenses against inflation by branch- ing out beyond stocks. Since Graham last wrote, two inflation-fighters have become widely available to investors:
+
+* REITs. Real Estate Investment Trusts, or REITs (pronounced “reets”), are companies that own and collect rent from commercial and residential properties.10 Bundled into real-estate mutual funds, REITs do a decent job of combating inflation. The best choice is Van- guard REIT Index Fund; other relatively low-cost choices include Cohen & Steers Realty Shares, Columbia Real Estate Equity Fund, and Fidelity Real Estate Investment Fund.11 While a REIT fund is unlikely to be a foolproof inflation-fighter, in the long run it should give you some defense against the erosion of purchasing power without hampering your overall returns.
+
+* TIPS. Treasury Inflation-Protected Securities, or TIPS, are U.S. government bonds, first issued in 1997, that automatically go up in value when inflation rises. Because the full faith and credit of the United States stands behind them, all Treasury bonds are safe from the risk of default (or nonpayment of interest). But TIPS also guaran- tee that the value of your investment won’t be eroded by inflation. In one easy package, you insure yourself against financial loss and the loss of purchasing power.
+
+# CHAPTER 3 A Century of Stock-Market History: The Level of Stock Prices in Early 1972
+
 
