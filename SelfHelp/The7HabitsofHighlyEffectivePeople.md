@@ -335,13 +335,45 @@ Roles and goals give structure and organized direction to your personal mission.
 
 # Habit 3: Put First Things First TM -- Principles of Personal Managemen
 
+> Things which matter most must never be at the mercy of things which matter least -- Goet
 
+You can't become principle-centered without first being aware of and developing your own proactive nature. You can't become principle-centered without first being aware of your paradigms and understanding how to shift them and align them with principles. You can't become principle-centered without a vision of and a focus on the unique contribution that is yours to make.
 
+Management, remember, is clearly different from leadership. Leadership is primarily a high-powered, right-brain activity. It's more of an art; it's based on a philosophy. You have to ask the ultimate questions of life when you're dealing with personal leadership issues.
 
+### The Power of Independent Will
 
+In addition to self-awareness, imagination, and conscience, it is the fourth human endowment -- independent will -- that really makes effective self-management possible. It is the ability to make decisions and choices and to act in accordance with them. It is the ability to act rather than to be acted upon, to proactively carry out the program we have developed through the other three endowments.
 
+But as we examine this endowment in the context of effective self-management, we realize it's usually not the dramatic, the visible, the once-in-a-lifetime, up-by-the-bootstraps effort that brings enduring success. Empowerment comes from the learning how to use this great endowment in the decisions we make every day.
 
+Effective management is putting first things first. While leadership decides what "first things" are,it is management that puts them first, day-by-day, moment-by-moment. Management is discipline, carrying it out.
 
+Discipline derives from disciple -- disciple to a philosophy, disciple to a set of principles, disciple to a set of values, disciple to an overriding purpose, to a superordinate goal or a person who represents that goal.
+
+In other words, if you are an effective manager of your self, your discipline comes from within; it is a function of your independent will. You are a disciple, a follower, of your own deep values and their source. And you have the will, the integrity, to subordinate your feelings, your impulses, your moods to those values.
+
+### Four Generations of Time Management
+
+As a longtime student of this fascinating field, I am personally persuaded that the essence of the best thinking in the area of time management can be captured in a single phrase: Organize and execute around priorities. That phrase represents the evolution of three generations of time-management theory, and how to best do it is the focus of a wide variety of approaches and materials.
+
+Likewise, in the area of time management, each generation builds on the one before it -- each one moves us toward greater control of our lives. The first wave or generation could be characterized by notes and checklists, an effort to give some semblance of recognition and inclusiveness to the many demands placed on our time and energy.
+
+The second generation could be characterized by calendars and appointment books. This wave reflects an attempt to look ahead, to schedule events and activities in the future.
+
+The third generation reflects the current time-management field. It adds to those preceding generations the important idea of prioritization, of clarifying values, and of comparing the relative worth of activities based on their relationship to those values. In addition, it focuses on setting goals -- specific long-, intermediate-, and short-term targets toward which time and energy would be directed in harmony with values. It also includes the concept of daily planning, of making a specific plan to accomplish those goals and activities determined to be of greatest worth.
+
+But there is an emerging fourth generation that is different in kind. It recognizes that "time management" is really a misnomer -- the challenge is not to manage time, but to manage ourselves. Satisfaction is a function of expectation as well as realization. And expectation (and satisfaction) lie in our Circle of Influence.
+
+Rather than focusing on things and time, fourth-generation expectations focus on preserving and enhancing relationships and accomplishing results -- in short, on maintaining the P/PC Balance.
+
+##### Quadrant II
+
+Urgent matters are usually visible. They press on us; they insist on action. They're often popular with others. They're usually right in front of us. And often they are pleasant, easy, fun to do. But so often they are unimportant!
+
+Importance, on the other hand, has to do with results. If something is important, it contributes to your mission, your values, your high priority goals.
+
+We react to urgent matters. Important matters that are not urgent require more initiative, more proactivity. We must act to seize opportunity, to make things happen. If we don't practice Habit 2, if we don't have a clear idea of what is important, of the results we desire in our lives, we are easily diverted into responding to the urgent.
 
 
 
