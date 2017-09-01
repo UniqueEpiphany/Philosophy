@@ -142,6 +142,20 @@ If you want to lose weight, the most important foods to avoid arc processed food
 
 ##### Soil Depletion of Nutrients Is Not the Problem- Our Food Choices Are
 
+It is not merely dental cavities that should concern us about sugar. If we allow ourselves and our children to utilize sugar, white- flour products, and oil to supply the majority of calories, as most American families do, we shall be condemning ourselves to a lifetime of sickness, medical problems, and a premature death.
+
+__Refined sugars include table sugar (sucrose), milk sugar (lactose), honey, brown sugar, high-fructose corn syrup, molasses, corn sweeteners, and fruit juice concentrates. Even the bottled and boxed fruit juices that many children drink are a poor food; with no significant nutrient density, they lead to obesity and disease. Processed apple juice, which is not far from sugar water in its nutrient score, accounts for almost 50 percent of all fruit servings consumed by preschoolers.
+For example, apple juice contains none of the vitamin C originally present in the whole apple. Oranges make the most nutritious juice, but even orange juice can't compare with the original orange. In citrus fruits, most of the anti-cancer compounds are present in the membranes and pulp, which are removed in processing juice. Those cardboard containers of orange juice contain less than 10 percent of the vitamin C present in an orange and even less of the fiber and phytochemicals. Juice is not fruit, and prepackaged juices do not con- tain even one-tenth of the nutrients present in fresh fruit.__
+
+##### Processed carbohydrates, lacking in fiber, fail to slow sugar absorption, causing wide swings in glucose levels.
+
+Empty calories are empty calories. Cookies, jams, and other pro- cessed foods (even those from the health-food store) sweetened with "fruit juice" sound healthier but are just as bad as white-sugar prod- ucts. When fruit juice is concentrated and used as a sweetener, the healthy nutritional components are stripped away — what's left is plain sugar. To your body, there is not much difference between refined sugar, fruit juice sweeteners, honey, fruit juice concentrate, or any other concentrated sweetener. Our sweet tooth has been put there by nature to have us enjoy and consume real fruit, not some imitation. Fresh-squeezed orange juice and other fresh fruit and veg- etable juices are relatively healthy foods that contain the majority of the original vitamins and minerals. But the sweet fruit juices and even carrot juice should still be used only moderately, as they still contain a high concentration of sugar calories and no fiber. Still not an ideal food for those desiring to lose weight. I often use these juices as part of salad dressings and other dishes rather than alone as a drink. __Fresh fruits and even dried fruits do contain an assortment of protective nutrients and phytochemicals, so stick with the real thing.__
+
+##### Enrichment with Nutrients Is a House Made of Straw
+
+
+
+
 
 
 
