@@ -153,9 +153,26 @@ Empty calories are empty calories. Cookies, jams, and other pro- cessed foods (e
 
 ##### Enrichment with Nutrients Is a House Made of Straw
 
+White or "enriched" rice is just as bad as white bread and pasta. It is nutritionally bankrupt.Refining the rice removes the same im- portant factors: fiber, minerals, phytochemicals, and vitamin E. So, when you eat grains, eat whole grains.Refining foods removes so much nutrition that our government requires that a few synthetic vitamins and minerals be added back.As we change food through processing and refining, we rob the food of certain health-supporting substances and often create un- healthy compounds, thus making it a more unfit food for human consumption. __As a general rule of thumb: the closer we eat foods to their natural state, the healthier the food.__
 
+##### Not All Whole-Wheat Products Are Equal
 
+__Eating fragmented and unbalanced foods causes many problems, espe- cially for those trying to lose weight.__ 
+Whole-grain hot cereals are less processed than cold cereals and come up with better nutritional scores. They can be soaked in water overnight so you do not have to cook them in the morning. Some hot whole-grain cereals that I recommend are oatmeal (not instant), Roman Meal, Steel Cut Oats, Wheatena, Ralston High Fiber, and Quaker Multigrain.
 
+##### Fat and Refined Carbohydrates: Married to Your Waist
+
+The body converts food fat into body fat quickly and easily: 100 calo- ries of ingested fat can be converted to 97 calories of body fat by burning a measly 3 calories. Fat is an appetite stimulant: the more you eat, the more you want. If a food could be scientifically engineered to create an obese society, it would have fat, such as butter, mixed with sugar and flour.
+
+The combination of fat and refined carbohydrates has an ex- tremely powerful effect on driving the signals that promote fat accu- mulation on the body. Refined foods cause a swift and excessive rise in blood sugar, which in turn triggers insulin surges to drive the sugar out of the blood and into our cells. Unfortunately, insulin also promotes the storage of fat on the body and encourages your fat cells to swell.
+
+As more fat is packed away on the body, it interferes with insulin uptake into our muscle tissues. Our pancreas then senses that the glucose level in the bloodstream is still too high and pumps out even more insulin. A little extra fat around our midsection results in so much interference with insulin's effectiveness that two to five times as much insulin may be secreted in an overweight person than in a thin person.
+
+The higher level of insulin in turn promotes more efficient con- version of our caloric intake into body fat, and this vicious cycle con- tinues. People get heavier and heavier as time goes on.
+
+Eating refined carbohydrates — as opposed to complex carbohy- drates in their natural state — causes the body's "set point" for body weight to increase. Your "set point" is the weight the body tries to maintain through the brain's control of hormonal messengers. When you eat refined fats (oils) or refined carbohydrates such as white flour and sugar, the fat-storing hormones are produced in excess, raising the set point. To further compound the problem, because so much of the vitamin and mineral content of these foods has been lost during processing, you naturally crave more food to make up for the missing nutrients.
+
+##### Our Oil-Rich Country, or FromYour Lips Right to Your Hips
 
 
 
