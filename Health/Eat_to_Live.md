@@ -200,6 +200,35 @@ The bottom line about healthy fats is that raw nuts and seeds, av- ocados, and u
 
 ##### The "Magic" of Fiber - A Critical Nutrient
 
+Fiber is a vital nutrient, essential to human health. __When you eat mostly natural plant foods, such as fruits, vegeta- bles, and beans, you get large amounts of various types of fiber. These foods are rich in complex carbohydrates and both insoluble and water-soluble fibers. The fibers slow down glucose absorption and control the rate of digestion. Plant fibers have complex physiological effects in the digestive tract that offer a variety of benefits,such as lowering cholesterol.__
+
+Because of fiber, and because precious food components haven't been lost through processing, natural plant foods fill you up and do not cause abnormal physiological cravings or hormonal imbalances.
+
+__There's a lesson to be learned here: Don't get your health advice from the media.__
+
+As in a trial, the evidence has become overwhelming and irrefutable — high-fiber foods offer significant protection against both cancer (including colon cancer) and heart disease.
+
+The reality is that healthy, nutritious foods are also very rich in fiber and that those foods associated with disease risk are generally fiber-deficient. Meat and dairy products do not contain any fiber, and foods made from refined grains (such as white bread, white rice, and pasta) have had their fiber removed. Clearly, we must substantially reduce our consumption of these fiber-deficient foods if we expect to lose weight and live a long, healthy life.
+
+# 3 Phytochemicals: Nature's "Magic" Pills
+
+__Potatoes are one of the least nutritious vegetables.__ 
+
+The diseases of poverty are mostly infectious diseases and are found in areas of the world with compromised nutrition. Heart attacks and the most common cancers (breast, colon, prostate) are found in rich societies where nutritional extravagance is the rule. Nowhere in the world today can we find a society that combines economic wealth with a high intake and variety of unrefined plant foods.
+
+##### Nutritional Powerhouses: Plant Foods
+
+Natural plant foods, though usually carbohydrate-rich, also contain protein and fats. On average, 25 percent of the calories in vegetables are from protein. Romaine lettuce, for example, is rich in both pro- tein and essential fatty acids, giving us those healthy fats our bodies require.
+
+There is no longer any question about the importance of fruits and vegetables in our diet. The greater the quantity and assortment of fruits and vegetables consumed, the lower the incidence of heart attacks, strokes, and cancer. There is still some controversy about which foods cause which cancers and whether certain types of fat are the culprits with certain cancers, but there's one thing we know for sure: raw vegetables and fresh fruits have powerful anti-cancer agents.
+
+Studies have repeatedly shown the correlation between consumption of these foods and a lower incidence of various cancers, including those of the breast, colon, rectum, lung, stomach, prostate, and pancreas. This means that your risk of cancer decreases with an increased intake of fruits and vegetables, and the earlier in life you start eating large amounts of these foods, the more protection you get.
+
+__Humans are genetically adapted to expect a high intake of natural and unprocessed plant-derived substances. Cancer is a disease of maladaptation. It results primarily from a body's lacking critical substances found in different types of vegetation, many of which are still undiscovered, that are metabolically necessary for normal protective function.__ Natural foods unadulterated by man are highly complex — so complex that the exact structure and the majority of compounds they contain are not precisely known. A tomato, for example, contains more than ten thousand different phytochemicals.
+
+It may never be possible to extract the precise symphony of nutri- ents found in vegetation and place it in a pill. Isolated nutrients ex- tracted from food may never offer the same level of disease-protective effects of whole natural foods, as nature "designed" them. Fruits and vegetables contain a variety of nutrients, which work in subtle syn- ergies, and many of these nutrients cannot be isolated or extracted. Phytochemicals from a variety of plant foods work together to become much more potent at detoxifying carcinogens and protecting against cancer than when taken individually as isolated compounds.
+
+##### The Phytochemical Revolution
 
 
 
