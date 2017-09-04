@@ -174,10 +174,31 @@ Eating refined carbohydrates — as opposed to complex carbohy- drates in their 
 
 ##### Our Oil-Rich Country, or FromYour Lips Right to Your Hips
 
+__Fat, such as olive oil, can be stored on your body within minutes, without costing the body any caloric price; it is just packed away (un- changed) on your hips and waist. If we biopsied your waist fat and looked at it under an electron microscope, we could actually see where the fat came from. It is stored there as pig fat, dairy fat, and olive oil fat —just as it was in the original food. It goes from your lips right to your hips. Actually, more fat from your last meal is deposited around your waist than on your hips, for both men and women.__ Analyzing these body-fat deposits is an accurate way for research scientists to discern food intake over time. Having research subjects remember what they ate (dietary recall analysis) is not as accurate as a tissue biopsy, which reports exactly what was really eaten.
+
+Foods cooked in oil or coated with oils soak up more oil than you think. A low-calorie "healthy" food easily becomes fattening. Most Americans eat negligible amounts of salad vegetables, but when they do eat a small salad, they consume about three leaves of iceberg let- tuce in a small bowl and then proceed to pour three or four table- spoons of oily dressing on top. Since oil is about 120 calories per tablespoon, they consume some 400 (empty) calories from dressing and about 18 from lettuce. They might as well forget the lettuce and just drink the dressing straight from the bottle.
 
 
+There is considerable evidence to suggest that consuming mono- unsaturated fats such as olive oil is less destructive to your health than the dangerous saturated and trans fats. But a lower-fat diet could be more dangerous than one with a higher level of fat if the lower-fat diet had more saturated and trans fats.
 
+##### The Popularity of the Mediterranean Diet
 
+__Research has shown that weight loss is about the same from any type of food eaten when caloric intake is equally low.
+Their main message is threefold: first, eat mostly phytochemical-rich plant foods to maximize health and disease prevention; second, caloric re- striction and exercise must be maintained for positive results; and third, healthy fats, especially olive oil, should not be restricted, because a diet without these fats is both unhealthy and unpalatable.__
+
+When vegetables are cooked, or eaten with fat, some nutrients are more efficiently absorbed and other heat-sensitive nutrients are lost or rendered less absorbable. Many studies show that raw fruits and vegetables offer the highest blood levels of cancer-protective nutrients and the most protection against cancer of any other foods, including cooked vegetation. Any advice not recognizing that raw vegetables and fresh fruits are the two most powerful anti-cancer categories of foods is off the mark.
+
+__My advice is extremely different. I recognize that raw, uncooked vegetables and fruits offer the most powerful protection against dis- ease and I encourage my patients to eat huge salads and at least four fresh fruits per day. Diets with little raw foods are not ideal. As the amount of raw fruits and vegetables are increased in a person's diet,weight loss and blood pressure are lowered effortlessly.__
+
+Additionally, raw foods contain enzymes, some of which can survive the digestive process in the stomach and pass into the small intestines. These heat-sensitive elements may offer significant nutri- tional advantages to protect against disease, according to investiga- tors from the Department of Biochemistry at Wright State University School of Medicine.
+
+__These researchers concluded that "most foods undergo a decrease in nutritive value in addition to the well-known loss of vitamins when cooked and/or processed." Most vitamins are heat-sensitive, for example 20-60 percent of vitamin C is lost, depending on the cooking method. Thirty to forty percent of minerals are lost in cooking vegetables as well. Consuming a significant quantity of raw foods is essential for superior health.__
+
+For the best results, your diet should contain a huge amount of raw foods, a large amount of the less calorically dense cooked vege- tation, and a lesser amount of the more calorically rich cooked starchy vegetables and grains. Cooking your food in oil will make your diet less effective and you will not lose weight as easily. You may not even lose any weight at all.
+
+The bottom line about healthy fats is that raw nuts and seeds, av- ocados, and unsalted olives (if you can find them) contain healthy fats. However, you should consume a limited amount of these foods, especially if you wish to lose weight. Also remember that oil, includ- ing olive oil, does not contain the nutrients and phytonutrients that were in the original olive. The oil has little nutrients (except a little vitamin E) and a negligible amount of phytochemical compounds. If you eat the quantities of oil permitted on the typical Mediterranean diet, where all the vegetables are cooked in oil, you will have diffi- culty taking off the weight you need to lose.
+
+##### The "Magic" of Fiber - A Critical Nutrient
 
 
 
