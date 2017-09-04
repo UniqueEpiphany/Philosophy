@@ -230,6 +230,16 @@ It may never be possible to extract the precise symphony of nutri- ents found in
 
 ##### The Phytochemical Revolution
 
+We are on the verge of a revolution. Substances newly discovered in broccoli and cabbage sprouts sweep toxins out of cells. Substances found in nuts and beans prevent damage to our cells' DNA. Other compounds in beets, peppers, and tomatoes fight cancerous changes in cells. Oranges and apples protect our blood vessels from damage that could lead to heart disease. Nature's chemoprotective army is alert and ready to remove our enemies and shield us from harm.
+
+Hardly a day goes by when some new study doesn't proclaim the health-giving properties of fruits, vegetables, and beans. Unprocessed plant foods contain thousands of compounds, most of which have not yet been discovered, that are essential for maintaining health and maximizing genetic potential. Welcome to the phytochemical revolution.
+
+Phytochemicals, or plant-derived chemicals, occur naturally in plants (phylo means "plant"). These nutrients, which scientists are just starting to discover and name, have tremendously beneficial ef- fects on human physiology. The effects of our not consuming suffi- cient amounts of them are even more astounding — premature death from cancer and atherosclerosis.
+
+__Eating a wide variety of raw and conservatively cooked plant foods (such as steamed vegetables) is the only way we can ensure that we get a sufficient amount of these essential health-supporting elements. Taking vitamin and mineral supplements or adding some vitamins to processed foods will not prevent the diseases associated with eating a diet containing a low percentage of calories from whole natural foods.__
+
+##### You Cannot Buy Your Health in a Bottle - You Must Earn It!
+
 
 
 
