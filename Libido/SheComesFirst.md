@@ -221,3 +221,89 @@ It should therefore come as no surprise that the more partners a person has had,
 As it turns out, promiscuity triggers a domino effect of risky behaviors: “The more partners an individual has, the more likely he or she is to have sex with people who themselves have many partners, the more likely he or she is to have sex with virtual strangers, the more likely she or he is to have been under the influence of drugs or alcohol during some sexual encounters, and while it is more likely that a condom was used, the rate of increased use of a condom does not seem great enough to offset the higher risks of infection.” (Sex in America Survey)
 
 # 19. Eat right
+
+CUNNILINGUS MAY BE a casual activity, but that doesn't mean you should treat it casually. Make sure that it's part of your safe- sex routine. If you're engaging a new partner, communicate openly and candidly. Be prepared to discuss your current sex partners, sexual history, risky behaviors, STD status, recent activities, and your approach to protection. Be aware that some STDs are asymptomatic and may flourish undetected; so if you find yourself caught up in the heat of the moment, think before engaging in unprotected cunnilingus. Regardless of the reward, even the smallest act is not without risk.
+
+# 20. The Cunnilinguist Manifesto
+
+* Respect the female process of arousal
+* Postpone gratification in the pursuit of mutual pleasure Know and appreciate the clitoris in all its manifold aspects
+* Stimulate the clitoris appropriately through the entire process of sexual response
+* Dispense with the conventional wisdom that exalts genital penetration as the apogee of sexual pleasure
+* Purge yourself of stereotypes, clichés, and prejudices Be patient, respectful, sensitive, and tender
+* Take an approach that is pleasure-oriented, not goal-oriented Approach each act as a unique process of giving and receiving, knowing and learning
+* Give of yourself seriously, generously, and wholeheartedly, even if your relationship is casual and impermanent
+
+Easier said than done. Even Karl Marx recognized that in order for words to become actions, the proper preconditions for success must be firmly in place. In the cunnilinguist revolution, we cannot underestimate the insidious forces of fear, shame, and ignorance.
+
+A woman may be deeply conflicted when it comes to receiving cunnilingus and the experience may be fraught with anxiety. Who knows for sure what emotional baggage she may carry? Take nothing for granted. There's an utter nakedness to cunnilingus, a vulnerability that we must respect and honor. She is exposing herself to be seen, smelled, tasted, and observed firsthand; she is permitting the exploration of a part of her body that she herself may find unfamiliar and mysterious. She may think her vulva is ugly, unkempt, unpredictable in its secretions, odoriferous, and strange. She may insist on making love in the dark, literally and figuratively.
+
+As cunnilinguists we need to be committed, steadfast, and confident in our resolve. If she senses that we're the least bit ambivalent, insincere, or impatient, then our efforts will be for naught. Only by inspiring trust will you lull her into a deeper, more instinctive zone of the self, a place where she can shed all inhibition and surrender herself to the soft warm wetness of your tongue.
+
+To that end, the Three Assurances of the cunnilinguist manifesto are as follows:
+
+* Going down on her turns you on; you enjoy it as much as she does.
+* There's no rush; she has all the time in the world. You want to savor every moment.
+* Her scent is provocative, her taste powerful: it all emanates from the same beautiful essence.
+
+# 21. A Note on the Play Process
+
+Additionally, the relegation of cunnilingus to foreplay reinforces the false idea that the tongue is best applied during the early stages of sexual response, when in fact the opposite is true: because of the heightened sensitivity of the clitoris, direct stimulation is best approached slowly and gradually, and is ideally preceded by a variety of erotic activates.
+
+In short, cunnilingus is not foreplay, it’s coreplay, the best approach for consistently applying various methods of clitoral stimulation; and one that, like genital penetration, requires an appropriate prologue of erotic activity.
+
+# 22. Foreplay: A Lexicon of Relevant Terms
+
+__Avoid__: __During foreplay avoid direct contact with her genitals for a minimum of ten to fifteen minutes. Stimulate other parts of her body; let the oxytocin wash over her and pervade her bloodstream. Save the genital kiss for last, as the first kiss upon the vulva is the threshold between foreplay and coreplay.__
+
+__Body, hers__: Keep in mind that skin is our largest sexual organ, and the entire body, from head to toe, is one big erogenous zone. This is especially true of women, as the female body is generally smaller than the male and the same numbers of nerves are consequently dispersed across a smaller surface area; hence the number of sensitive receptors is proportionally larger on the female body. Second, the female skin is generally thinner and less hairy than the male, so sensations are more clearly felt. Sex researchers have observed that some women can reach orgasm by simply having their eyebrows stroked or their earlobes kissed. As Voltaire wrote, “Love is a canvas furnished by Nature and embroidered by imagination.”
+
+__Breasts__: __While there is indeed a biological basis for the pleasure connection between breasts and vulva in the form of oxytocin—a chemical that heightens our sensitivity to touch and is released in her genital area when the breasts are stimulated—numerous studies reveal that breast contact stimulates men way more than it does women. In a Kinsey study of female sexual response, only 11 percent of the eight thousand women surveyed said that they stroked their breasts during masturbation (compared to 84 percent who stroked their clitoris or labia minora). So it stands to reason that when it comes to her breasts, a significant component of her pleasure is the enjoyment of yours.__ Every woman is different regarding the breast sensitivity, so err on the side of tenderness and look for feedback. As one of this author's interviewees put it, “Savor, don't suckle.”
+
+Breathing, hers: Most men think of vaginal wetness as the most reliable indicator of a woman's level of arousal; and while there is in deed a strong correlation between lubrication and sexual response, she may or may not be wet for reasons that have nothing to do with her level of sexual excitement. __Breathing, on the other hand, is an 1 often-neglected indicator. As she gets more aroused, look for the commensurate changes in her breathing, and tightening of the abdominal muscles.__
+
+Candles: __Men and women differ when it comes to their attitudes about doing it with the lights on. Like Hemingway, men often enjoy “a clean, well-lighted place” in which to practice and observe their craft, whereas women seem to prefer the cover of dark. Compromise with candlelight.__
+
+Fantasies: So potent is the power of the imagination that some women are actually able to fantasize themselves to orgasm, without any physical stimulation at all. Studies reveal that men and women fantasize differently. In general, women tend to fantasize in ways that are more situational and narrative, whereas men's fantasies tend to focus on specific physical and graphical elements of sexual encounters.In terms of subject matter, there is overlap between men and women, with common fantasies including: multiple partners, soft bondage, anal play, cheating, watching others voyeuristically, and having sex in public places.
+
+__Fellatio__: One of her greatest sources of pleasure will be to pleasure you, and there's no better way for her to do so than with some generous oral attention. Just don't get too carried away. Numerous surveys note that men enjoy fellatio as much as, if not more than, intercourse, and that it's the easiest way for a woman to stimulate a man to orgasm. Receiving head is not permission to climax. As Dr. Comfort wrote in The New Joy of Sex, “A few men can't take even the shortest genital kiss before ejaculating.” So if fellatio is something you love and must have, then go for a “light snack” during foreplay and put in your request for prolonged attention after coreplay.
+
+Kissing: As Shelley wrote, “Soul meets soul on lovers' lips.” A kiss is like the contact of two chemical substances: if there is any reaction, both are transformed. A kiss is a unique and versatile expression of the soul. A kiss can be playful, patient, and coy; or ravenous, forceful, and violent. __According to the teachings of Tantra, a woman's upper lip is considered one of the most erogenous areas on her body because of a special nerve that connects it to the clitoris, and is said to channel erotic energy.__ Like language itself, there is virtually no emotion that cannot be expressed with a kiss. Cunnilingus is simply the art of extending a kiss into a complete act of lovemaking.
+
+__Lubricant, artificial__: There's an old Malagasy proverb, “Let your love be like the misty rain, coming softly, hut flooding the river.” But if your partner doesn't lubricate consistently, easily, or at all, don't take it personally.n terms of cunnilingus, artificial lubricant is neither as important nor as indispensable as it is during genital intercourse. As Dr. Comfort noted in The New Joy of Sex, “The best sexual lubricant is saliva” and it's usually in ample supply during cunnilingus. But even he mouth grows dry at times, so it never hurts to have some lubricant close at hand. __In selecting a lubricant, read the ingredients carefully and stay away from those that are oil-based and contain chemicals such nonoxynol-9, a commonly used spermicidal that tastes awful, and can burn and lead to infection. Also, stay away from jellies, such as K-Y, that are greasy and heavy. Best to choose a water-based product that has few ingredients. Astroglide is a common favorite, and has arned the reputation of its tagline, “second only to nature.”__ There's no shortage of choices, so enjoy the process of selection.
+
+Massage, foot: __One of the most underestimated and underutilized forms of erotic stimulation, a good solid foot massage floods the bloodstream with endorphins and energizes the entire body. No need to worry about not being a professional masseur, just maintain persistent contact between hand and foot, massaging one foot at a time with both hands. Work the whole foot: the sole, ball, ankle, and toe joints before going to the other one. Feel free to kiss her toes. Some women won't be able to stand it, while others will experience the heights of pleasure.__
+
+Masturbation: Sex researchers Masters and Johnson gathered much of their information about female sexual response by watching women masturbate. __Take note: they consistently observed that women focused their manual stimulation on the clitoral head, as well as the shaft, mons pubis, and inner and outer labia. Because of the heightened sensitivity of the head, most women stimulated it at the peak of arousal, and avoided direct contact immediately subsequent to orgasm. Dr. Kinsey found that 95 percent of the women he studied climaxed far more often through masturbation than during genital penetration. This observation was corroborated by Masters and Johnson, who found that over 90 percent of women were able to experience an orgasm through masturbation.__
+
+Masturbation, shared: Not necessarily for her eves only, but an opportunity to observe a woman's unique way of consistently bringing herself to climax—something clearly worth studying. __If she's never masturbated in front of you, create an environment of intimacy and trust. Most important, let her know that it's something you want her to do because it turns you on and because you want to learn more about how to please her.__
+
+Orgasms, multiple: Oftentimes a woman will experience an orgasm during foreplay, particularly if ample stimulation has been effectively applied. While all women have the innate biological capacity for multiple orgasms, not all have experienced them and many might be unaware of their inherent potential. __If she climaxes during foreplay, transition for a few minutes into a milder form of stimulation such as kissing and hugging before moving into core- play. This shift in activity is particularly essential if her orgasm was the result of manual stimulation of the clitoris, as the clitoral head is particularly sensitive to touch following orgasm. Let her cool down, but keep her warm and sexualized by focusing your attention on other parts of her body. After this brief interval, you will be able to return to direct stimulation of her vulva and get ready for her next orgasm.__
+
+__Penetration: If cunnilingus is coreplay, then it's possible to think of genital penetration as an aspect of part of foreplay. In the standard missionary position—you on top, her beneath you—use the tip of your penis to barely penetrate her vaginal entrance. Let your penis rest just inside her. (If you're uncomfortable in the missionary position, then simply kneel or sit in front of her vulva.) Linger. Loiter. Meander. Stay close to the entrance. Press your thumb against her clitoral head and gently flick it from side to side as you penetrate her with short shallow thrusts. Or press the shaft of your penis against her clitoris and then gently thrust between the folds of her labia without ever entering her. Or she can perform Kegels (the squeezing of her pelvic muscles) while you, ever so slowly, penetrate her. Really take the time to feel her pelvic muscles contract against your penis as you slowly withdraw.__
+
+Ties: The kind that bind. Restraining a lover during sexual activity is a popular fantasy, and one that, unlike some others, is easily realized, and erotically rewarding. When approached safely as a lighthearted, playful activity, restraint is a fun, guilt-free way of acting out dominance roles and expressing healthy sexual aggression. It stimulates her body by allowing her to flex her muscles more intensely than when unrestrained; it also stimulates her mind by allowing her to surrender to pleasure and act out in ways that might normally make her feel awkward or shy. It also encourages you to take your time and lavish her with attention as she submits to your teasing. From constraint comes creativity. If you're new to this topic, err on the side of caution and peruse the pointers in the Appendix before proceeding.
+
+# 23. Introducing Coreplay
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
