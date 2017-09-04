@@ -72,12 +72,125 @@ __Regardless of how we categorize it, we need to understand that cunnilingus is 
 
 # 7. Avoid Freud
 
+# 8. What's in a Name?
+
+# 9. Now You See It: Female Sexual Anatomy Part 1
+
+![alt](https://image.slidesharecdn.com/ch27lecturepresentation-140918213806-phpapp02/95/ch-27lecturepresentation-19-638.jpg)
+
+The __Mons Pubis__. We begin our journey, north, at the mons pubis, also known as the “mons veneris” (mountain of Venus), named after the Roman goddess of love. The mons pubis is a thick pad of fatty tissue, covered in pubic hair, which is sometimes called the love mound because it forms a soft mound over the pubic bone.
+
+The __Labia Majora__. Heading south from the mons pubis, we next encounter the starting point of the labia majora (major lips). The outer sides of the labia majora, also known as the outer lips, are rich with pubic hair, whereas their inner sides are smooth, lined with oil and sweat glands. Beneath the skin of the outer lips is a network of erectile tissue that engorges with blood during arousal. The outer lips are analogous to the male scrotum, and both were formed from the same embryonic tissue. Although sensitive to touch, the outer lips are not nearly as sensitive as the labia minora (small lips) or other parts of the clitoral network such as the head and shaft.
+
+The __Front Commissure__. The outer lips mark an area where the visible parts of the clitoris begin. This highly sensitive area, just above the clitoral head, is called the front commissure, and it's from this point that the clitoral shaft—an unseen, but instrumental part of the clitoris—protrudes.
+
+The __Labia Minora__. Enfolded within the labia majora are the labia minora (little lips), although many insist that it's more apt to refer to both sets of lips respectively as outer and inner, rather than big and little, since the inner lips sometimes protrude out and beyond the outer lips. Interestingly, the inner lips are also archaically known as “nymphae,” named after the nymphs of ancient Greece who were famous for their irrepressible libidos and are the source of the term “nymphomania.”
+
+The inner lips enfold and surround the clitoral glans (the head), the urethral opening, and the introitus (entrance) to the vagina. Like the inner side of the labia majora, these smaller, inner lips have no hair, but are layered with oil glands that look and feel like tiny bumps. Dense with nerves, the inner lips are extremely sensitive and play an important role in the process of arousal.
+
+The inner lips are remarkably diverse in size and appearance. From woman to woman, and often on the same woman, no two lips are the same. Some lips are narrow; others wide; some curl inward, others flare outward. Sometimes the texture is glossy and smooth, sometimes wrinkled and bumpy. During the process of arousal, the inner lips change color, from light pink to darker hues, and swell and puff in size as they engorge with blood.
+
+The __Hood__. The outer edges of the inner lips meet just above the sensitive clitoral head to form the well-known protective hood (which is analogous to the foreskin of the penis), also known as the prepuce. The friction created when the clitoral hood rubs against the head is a powerful source of stimulation and pleasure. The hood also protects the head from overstimulation; just prior to the release of orgasm, it's into the folds of the hood that the head seeks refuge.
+
+The __Frenulum__. Below the head, the inner edges of the labia minora meet to form the frenulum, a small expanse of soft, sensitive skin, also known as the bridle. Like the inner lips, this area is rich in nerve fibers and is extremely sensitive to the touch.
+
+The __Fourchette__. The bottom edges of the lips meet beneath the vaginal entrance in an area known as the fourchette, or little fork. dust as the front commisure marks the top part of the visible clitoris, the fourchette marks the bottom.
 
 
 
+The __Clitoral Glans (the head)__. Protected by the hood of the inner lips, he head is the crown jewel that rests atop the unseen shaft and crura (the legs). __With approximately eight thousand nerve endings, twice as many as the head of the penis and more than any other part of the human body, the head is the visible part of a woman's clitoris that ofen gets referred to as the “love button.” It's not a bad term; just remember that it applies to only one part of the clitoris—the head.__
+
+__One of the biggest mistakes a lover can make is to underestimate the sensitivity of the clitoral head. In fact, at the peak of sexual arousal, the head becomes so sensitive that, with a little help from the suspensory ligament (an unseen part of the of the clitoris), it retracts beneath its hood and is often hidden at the moment of climax.__
+
+Some heads are large; others are small. Size varies greatly, just as it does with the male penis. But regardless of size and shape, all contain the same number of nerve endings, so clitoral dimensions have no impact on a woman's sensitivity.
+There's quite a bit of contention over the etymology of the word “clitoris.” Some believe it stems from the Greek, kleitoris, meaning “little hill or slope”; others say it comes from the Greek verb kleitoriazein, meaning “to touch or titillate lasciviously, to be inclined to pleasure”; and still others claim that the Greek word kleitoris originally meant “divine and goddesslike.” In some sense, all these meanings are true.
+
+__Perineum__. The perineum is the small expanse of skin just above the anus and just beneath the vaginal entrance (sometimes referred to casually as the “taint,” because “it t'aint one or the other”). __Beneath the skin of the perineum is a network of blood vessels and tissue, which fill with blood during arousal and become intensely sensitive. Dr. Kinsey observed during his research that the perineum is “highly sensitive to touch, and tactile stimulation of the area may provide considerable erotic arousal.” When making your travel plans of the clitoral network, make sure to include this southern hot spot.__
+
+# 10. Now You Don't: Female Sexual Anatomy Part 2
+
+The __Clitoral Body__. Attached to the head, and running just beneath the surface of the skin, the clitoral shaft can easily be felt, especially when aroused and filled with blood. A soft little pipe, the shaft is composed of spongy erectile tissue that is extremely receptive to sensation. The shaft extends north from the head toward the mons pubis for about three quarters of an inch before forking and dividing like a wishbone into two thin crura (or legs) that flare downward along the path of the inner lips and surround twin bulbs of erectile tissue, known as the clitoral bulbs.
+
+If you've ever noticed that the clitoral head seems to retract and disappear under its protective hood during peak arousal, that's because the suspensory ligament—attached to the head at one end and the ovaries at the other—is being stretched, causing the head to retract.
+
+Additionally, the clitoris has layers of muscle, usually referred to as vaginal muscles or pelvic floor muscles. There is the oval-shaped bulbocavernous muscle that rests between the inner lips and the bulbs of the clitoris. This muscle is interwoven with muscle that encircles the anus, and is part of the reason that anal stimulation is often a turn-on and hence part of the clitoral network.
+
+Underneath it all is a broad, flat layer of muscle called the pubococcygeus (pew-bo-cok-SIH-gee-us) or __PC muscle__. The PC muscle is also known as the “Kegel” muscle, named after Dr. Arnold Kegel who observed that the PC muscle contracts during orgasm. Kegel subsequently developed a series of exercises designed to strengthen the pelvic muscles and heighten pleasure for both partners, hence the birth of “Kegels.” In both men and women, the PC muscle is easily identified as the one that allows us to stop the flow of urine.
+
+# 11. Avoid “G-Spotty” Logic
+
+LET'S TALK about spot removal, G-spot removal that is. Starting at the urethral opening, and running about two inches deep to the bladder, is the urethra, which first and foremost enables the removal of urine. Surrounding the urethra is a ring of spongy erectile tissue, known as corpus spongiosum, which fills with blood (luring arousal and protects the urethra from the friction of penetration. This area of spongy tissue is also known as the much-ballyhooed G-spot, named in 1944 after Dr. Ernst Grafenberg, who described a “zone of erogenous feeling . . . located along the suburethral surface of the anterior vaginal wall.” In layman's terms, Dr. Kinsey observed, “Most of those women who did notice some response had the sensitivity confined to a certain point, in most cases the upper wall of the vagina just inside the vaginal entrance.” For all its hype, the G- spot, as cited earlier, may simply be nothing more than the roots of the clitoris crisscrossing the urethral sponge.
+While sensitive to stimulation, but without nearly as many nerve endings as the clitoral head, the G-spot generally responds to a more persistent, massaging pressure. It's not uncommon for a woman to feel a fleeting urge to urinate when this area is stimulated.
+
+A whole lot of fuss has been made over the difference between a clitoral orgasm and a G-spot orgasm, with many claiming that the latter is responsible for the production of the fuller vaginal orgasm. This hubbub reached its apex with the publication in 1982 of the The G Spot by Alice Kahn Ladas, Beverly Whipple, and Dr. John Perry. In retrospect, it's possible to argue that all their book ultimately accomplished was to reintroduce a spruced-up, hyped-up theory of vaginal orgasm into the mainstream, with the added bonus of female ejaculation. Of course it was a cultural sensation; the notion of a G- spot dovetailed seamlessly into the “intercourse discourse” and gave penetration a new, invigorated raison d'être. Is that revolutionary, or just plain reactionary?
+
+As we discussed earlier, the whole idea of a mature vaginal orgasm vs. an immature clitoral one was a bogus construct to begin with, promulgated by Freud, perpetuated by his followers, and reinvented and sensationalized in the form of the G-spot. And although the urethral sponge is indeed attached to the vaginal ceiling, it is nevertheless considered an integral part of the clitoral network and not a separate part of the vagina that produces pleasure. A G- spot orgasm, like all female orgasms, is a clitoral orgasm; it's part of the same pleasure network. As such, when we address the techniques in Part II, this book will make a somewhat radical break from the tradition of erotological literature by referring to the area that is generally known as the G-spot as the “clitoral cluster,” a name that more accurately, and simply, expresses its anatomical power and role in the process of female sexual response.
+
+# 12. When Raindrops Keep Falling on Your Head: Female Ejaculation
+
+T HE G-SPOT is also thought to be the source of female ejaculation, another matter of controversy. Does a woman actually ' ejaculate? The answer is yes, but not in the same sense as the explosive male orgasm and not nearly as often as the “ejaculation evangelists” would have us believe. In general, female ejaculation appears to be the exception rather than the rule.Today, a whole industry has emerged around the concept, pitching a vast array of hooks, tapes, videos, and seminars that urge women to discover and master their ejaculatory potential. But amid all the snake oil, it's worth keeping in mind that the orgasm reflex is part of the autonomic nervous system—it's an involuntary response outside of the control of the mind. The momentary out-of-body sense of “timelessness” that we experience when we've reached the point of no return is intrinsic to the release of sexual tension and part and parcel of the joy of sexual ecstasy; it shouldn't be muddled up with mind control exercises that may, in the end, enable a woman to produce a wee bit of fluid, but do not qualitatively enhance the experience of orgasm, and indeed may ultimately detract from it.
+
+However, the fluid that is reputed to gush when consciously impelled by the bearing down of the pelvic muscles may very well be coming from the bladder and thereby contain urine. Women who train themselves to consciously ejaculate also appear to produce more fluid than women who emit fluid involuntarily, lending further credence to the idea that urine may be contributing to the overall volume of ejaculate. What's interesting as well is that interviews with women who are able to voluntarily ejaculate reveal that the process is independent of sexual arousal and does not necessarily heighten the pleasure of orgasm, whereas women who involuntarily ejaculate are unable to parse the experience of orgasm and ejaculation and often don't even know that they've ejaculated. All in all, it does not appear that ejaculation, voluntary or involuntary, does much to enhance the pleasure of orgasm.
+
+# 13. How Wet Is Wet?
+
+THE VAGINA IS VITAL to the reproductive process—as a birth canal, a receptacle for sperm, and a vehicle for the release of menstrual blood—but not in the production of pleasure.
 
 
+In a nonaroused state, the vagina is a compressed tube, about three to four inches long, composed of muscle, and lined with mucous membranes not dissimilar to the lining of the mouth. During arousal, a woman's vagina widens and opens in order to accommodate the penis—a few inches in both depth and width— creating what Masters and Johnson referred to as the “ballooning” effect. Meanwhile, the outer third of the vagina begins to narrow and tighten as the clitoral structures that are located there fill with blood; this compression creates a “clitoral cuff” that actually helps stimulate a man to orgasm through the application of pressure and friction against the penis.
 
+A woman's vagina usually begins to lubricate shortly after stimulation—what looks like beads of sweat form all over the vaginal walls; this is sometimes called vaginal sweating. Just below the vaginal opening are the ducts that connect to the vulvovaginal glands, which secrete a few drops of thick fluid that contribute, along with the sweating of the vagina, to the lubrication of the vaginal opening.
 
+As we will discuss in the section on foreplay, lubrication is a big part of the arousal process, but is by no means an unequivocal indicator that a woman's been amply stimulated. __She may be lubricated, but not necessarily aroused. These secretions are part of the vagina's natural way of keeping it free of bacteria that don't belong there. Conversely, a woman may be highly aroused, yet not necessarily well lubricated.__
 
+# 14. Aristotle and the Poetics of Arousal
+
+# 15. A Synopsis of Female Sexual Response
+
+### Act 1 — Foreplay: The Call to Action
+
+In ACT 1. Foreplay galvanizes the mind and body toward sexual response.
+
+* Dozens of chemicals and hormones are released into the bloodstream, causing a woman to become “emotionally stoned,” according to Theresa Crenshaw, M.D., author of The Alchemy of Love and Lust.
+* The flow of blood is redirected toward the pelvid area; nerve bivers in the genital area become excited, and rectile tissue begins to engorge.
+* Across the body, the skin becomes extra sensitive to touch.
+* The breasts swell in size, and stimulation of the nipples initiates the production of oxytocin, a hormone that creates pleasurable sensations throughout the genital area.
+* As blood vessels force fluid through the walls of the vagina, the vulvovaginal glands produce a small amount of thick fluid that acts as a lubricant.
+* The clitoral head emerges from its hood.
+
+### Act II—Coreplay: Tension and Release
+* Muscle tension builds throughout the body; respiration increases, blood pressure goes up, and the heart beats faster.
+* The entrance to the vagina narrows while its inner depths widen and increase at least two inches in length.
+* The clitoral body (the shaft, legs, and bulb) stiffens, stretches, and elongates.
+* The spongy tissue of the clitoral cluster swells and its ridges can be clearly felt protruding from the vaginal ceiling.
+* The suspensory ligament tightens and causes the highly sensitized clitoral head to retract beneath its hood, where it will remain until orgasm.
+* The round ligament, positioned between the uterus and the inner lips, tugs on both ends, involving the uterus in the process of sexual response and climax
+
+As coreplay continues:
+
+* The skin flushes; breathing deepens.
+* The heart rate soars, everything tightens in a final clench.
+* Her inner labia change color, darkening with the engorgement of blood.
+
+> During the process of arousal, erectile tissue engorges with blood, causing the clitoral head nearly to double in size.
+
+Finally, all the muscular tension that has been building explodes in orgasm—a series of quick, rhythmic contractions.
+
+* The vagina walls and the pelvic floor muscles contract rhythmically in approximately 0.8-second intervals.
+* The sphincter muscles in the rectum also contract spasmodically in sync with genital contractions. In addition, the uterus contracts because of an influx of oxytocin
+* These contractions produce waves of pleasure, and with some women the orgasm is accompanied by the ejaculation of a small amount of clear, alkaline fluid.
+
+The number of orgasmic contractions varies, anywhere from three to fifteen on average, although Masters and Johnson observed a woman who experienced a forty-three-second orgasm consisting of more than twenty-five successive contractions. Additionally, it's been observed that pregnant women sometimes experience prolonged orgasms because of the persistent engorgement of their genitals.
+
+> While there's no rule of thumb for the number of orgasmic contractions, women tend to experience six to ten contractions, whereas men generally have four to six. Once again, we are reminded of Masters and Johnson's declaration that a woman has “an infinitely greater capacity for sexual response than a man ever dreamed of.”
+
+### Act III—Moreplay: The Return to Balance
+
+After orgasm is the resolution phase, a return to calm and the prearoused state. Men and women differ strikingly in this phase, with the former losing their erections quickly and entering into what's known as a refractory period, an interval of time that needs to pass before he can get an erection again.
+
+With women, it takes longer for the genitals to return to their normal state, at least five to ten minutes. Women tend not to get sleepy, their genitals don't become hypersensitive (except the clitoral head), and they don't experience a refractory period—with a little stimulation they're ready to begin the process all over again.
+
+The difference between how and men and women experience the resolution phase is what I call the “snuggle gap”: women want more interaction; men want to roll over and go to sleep. While much literature has been devoted to the “insensitivity” of men and the “neediness” of women in this respect, it's far more effective to understand that the snuggle gap is largely the result of biology (men crash quickly after sex, women come down slowly), so don't overanalyze, or get angry and pick a fight; instead, respect each other's differences and compromise: fall asleep while holding her in your arms.
+
+# 16. Scent and Sensibility
 
