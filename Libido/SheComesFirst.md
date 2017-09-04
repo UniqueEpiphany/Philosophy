@@ -194,3 +194,30 @@ The difference between how and men and women experience the resolution phase is 
 
 # 16. Scent and Sensibility
 
+All this fuss and hullabaloo over hygiene; and yet, in reality, a woman's genitals are a self-cleaning system—more sanitary than many other parts of the body, including the mouth. One of the reasons a woman is often lubricated, even when she's not aroused, is that these secretions are part of the vagina's natural way of keeping it bacteria-free. As science writer Natalie Angier has written: “The vagina is its own ecosystem, a land of unsung symbiosis and tart vigor. Sure, the traditional concept of a vagina is 'It's a swamp down there!' but tidal pool would be more accurate: aqueous, stable, yet in perpetual flux.”
+
+__At the core of this ecosystem is a sophisticated process of symbiosis, one in which healthy bacteria protect and ward off the unhealthy. It's been said that a woman's genitals are as clean as a fresh carton of yogurt, and this comparison is often made because the kind of bacteria found in yogurt, lactobacilli, are also found in a woman's vaginal secretions. In fact, if symbiosis is compromised and unhealthy, anaerobic bacteria gain an advantage, eating yogurt can often help to stave off infection and restore balance.__
+
+If there is a bad smell in the genital area, the first thing worth paying attention to is personal hygiene. Like men, women sweat down there and, more often than not, showering or bathing, or even engaging in what the French refer to as a “tart-wash” (a quick freshening of the underarms and genital area) can usually help to rid oneself of any unwanted odors.
+
+However, if personal hygiene has been attended to, and an off- putting odor still persists, it's probably time to go to the doctor: she could be suffering from an infection, bacterial vaginosis, in which a lack of lactobacilli creates an imbalance and allows anaerobic bacteria to accumulate. This, according to Natalie Angier, is where the comparison to fish often comes into play, as these microbes produce trimethylamine, the same substance that gives day-old fish its odor.
+
+Gertrude Stein, a cunnilinguist in her own right, may have been mistaken: a rose is a rose is not always a rose. Some women are born with imbalances, and might have a predisposition toward vaginosis and a stronger odor. In addition to eating yogurt, there are also antibiotic treatments that can help restore balance.
+
+Every woman smells and tastes different. Some are sweeter than others, some are a bit more pungent, still others are more neutral and nondescript. Sometimes the differences are subtle, other times they're stark. Nor will the same woman always consistently smell or taste the same. Lots of factors can affect smell and taste, including: diet, vitamin deficiencies, medication, her cycle (some women produce vaginal secretions that contain compounds called aliphaticacid chains, and may cause her scent to vary with the phase of her menstrual cycle), infection, hydration, alcohol, drugs, tobacco. Unprotected sex can also affect a woman's smell, in that sperm is highly alkaline and raises the pH level of the vaginal ecosystem.
+
+> According to science writer Natalie Angier, a woman can contract vaginosis (an infection that affects her scent) from engaging in unprotected sex. As it turns out, sperm is highly alkaline, more than any other body fluid. When introduced during unprotected sex, this causes the overall pH level of the vagina to rise, and briefly allows unhealthy bacteria to gain advantage. Usually the body quickly readjusts to normal levels, especially when the sperm is familiar, as it is when two partners are committed to each other and monogamous. But if a woman has unprotected sex with one or more new partners, the body may not be able to restore balance as quickly as possible as a result of immunological factors.So in some sense, smell may be indicative of promiscuity, and is probably why the Kamasutra describes licentious women as smelling like fish.
+
+# 17. We've Come a Long Way . . .
+
+# 18. But proceed with caution
+If you give or receive cunnilingus casually, in an unsafe, unprotected environment, you are willfully place yourself in a  
+high-risk category for the transmission and/or contraction of an STD, including: AIDS, gonorrhea, syphilis, genital herpes, chlamydia, genital warts, and hepatitis. (Men also need to worry about nongonococcal urethritis, whereas women should be more than a little concerned about pelvic inflammatory disease.) Of these diseases, gonorrhea, syphilis, chlamydia, nongonococcal urethritis, and pelvic inflammatory disease are caused by the transmission of bacteria and can be cured with antibiotics if caught early enough; the rest are viral and without cure, although in some cases the symptoms are treatable. These STDs are highly contagious and can be transmitted from vulva to mouth and vice versa.
+
+That's not to say there isn't any risk of contracting or transmitting AIDS via cunnilingus. Vaginal secretions of women who are HIV positive have been found to contain small amounts of HIV (with the amounts rising when she is menstruating), and HIV positive men can also transmit the virus via cuts in the mouth.
+
+It should therefore come as no surprise that the more partners a person has had, the more likely that he or she has engaged with those partners outside of a monogamous relationship, and that his or her partner falls into a similar pattern of promiscuity, thereby greatly increasing the risk of having come into contact with an STD.
+
+As it turns out, promiscuity triggers a domino effect of risky behaviors: “The more partners an individual has, the more likely he or she is to have sex with people who themselves have many partners, the more likely he or she is to have sex with virtual strangers, the more likely she or he is to have been under the influence of drugs or alcohol during some sexual encounters, and while it is more likely that a condom was used, the rate of increased use of a condom does not seem great enough to offset the higher risks of infection.” (Sex in America Survey)
+
+# 19. Eat right
