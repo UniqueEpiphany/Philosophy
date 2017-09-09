@@ -286,13 +286,42 @@ Ties: The kind that bind. Restraining a lover during sexual activity is a popula
 
 # 23. Introducing Coreplay
 
+# 24. Form Follows Function: Getting into Position
 
+BEFORE GOING DOWN on a woman, make sure to position yourself for maximum performance. Bad form is often the difference between success and failure.First and foremost, expert cunnilingus needs to be delivered from a position that enables the giver to comfortably apply persistent, rhythmic pressure over time while the receiver relaxes into the nuances of arousal. Not surprisingly, one of the main reasons why men say they don't perform cunnilingus more often is the physical strain—in short, the pain of being in the wrong position. So if your attitude toward cunnilingus is “no pain, no gain,” the sentiment is appreciated, but entirely unnecessary.
 
+There are a few positions, better suited to porn films than to prolonged clitoral stimulation, that have nonetheless become widely, and wrongly, disseminated into the mainstream. At best they serve as spicy embellishments to a session of cunnilingus; at worst they can seriously undermine the entire experience. These popular positions include 69'ing, SOMF (Sit on My Face), and Up Against the Wall, among others.
 
+In the 69 position, you are endeavoring to provide stimulation from the wrong point of attack. Rather than approaching her vulva from the south (bottom up), you're coming in from the north (top down). The fact is, when it comes to oral sex, it's best for one partner to focus on giving while the other focuses on receiving—both are extremely pleasurable and best kept pure.
 
+### Now the Right Way
 
+##### Her body
 
+She should start flat on her back, legs spread comfortably apart, but not too far (six to nine inches at most) and a bit bent at the knee. As a rule, her legs should always be closer together than farther apart, as she needs the full command of her pelvic muscles. She should be completely at ease and relaxed: able to focus on the pleasure she's receiving without any distraction— physical or mental.
 
+When a woman is aroused and comfortable, her back will find itself flat, without an arch, and her genitals will be tilted slightly up toward your mouth, rather than driving downward—in short, the opposite of what we see in porn. To help her achieve this naturally comfortable position, prop a pillow or two behind her neck and shoulders.
+
+A pillow propped under her butt will help with blood flow to the pelvic region, as well as provide you with better access to her genitalia, making it easier for you to connect “lips” and alleviate stress to your neck.
+
+##### Your Body
+
+It's important that you have enough space to stretch out and be comfortable—so you'll probably have to push her up toward the head of the bed.
+
+Place a pillow beneath your forearms and get your “working hands” as comfortable and close as possible to her vulva.
+Position yourself vertically from her vagina. Other than the narrow flaring of her legs, your bodies, taken together, should form a straight line.
+
+All in all, you should be completely involved with her vulva; on top of it, buried in it: face, mouth, nose, gums, teeth, and tongue—all of which will be employed one way or another. If a filmmaker were capturing the event, very little would be seen beyond the still back of your head. Certainly, there would be few, if any, flashes of tongue.
+
+##### Your Head
+
+They don't call it “giving head” for nothing. Cunnilingus involves more than just the use of your tongue. You need to get your whole face in there. Your nose should be buried lightly in her mound, with your upper lip and mustache area resting firmly against the front edge of her pubic bone. You should be able to easily use your upper lip and gum to provide light pressure against her front commissure, the area just above the clitoral head where her outer lips meet.
+
+As for your tongue, it should easily be able to rest against her vaginal entrance and cover its entire expanse from top to bottom. This position enables you to apply a full range of motion with your tongue: from long vigorous licks to deft persistent flicks, from keeping it flat and still to applying focused tongue-tip pressure.
+
+All in all, you should feel perfectly at ease adopting a wide range of motions: licking for long periods of time, sliding your hands underneath her butt, lifting her legs and rocking her to and fro, placing a hand on her stomach, turning her body from side to side.
+
+# 25. A Quick Refresher of the Top Ten Hot Spots in the Clitoral Network
 
 
 
