@@ -188,7 +188,7 @@ Their main message is threefold: first, eat mostly phytochemical-rich plant food
 
 When vegetables are cooked, or eaten with fat, some nutrients are more efficiently absorbed and other heat-sensitive nutrients are lost or rendered less absorbable. Many studies show that raw fruits and vegetables offer the highest blood levels of cancer-protective nutrients and the most protection against cancer of any other foods, including cooked vegetation. Any advice not recognizing that raw vegetables and fresh fruits are the two most powerful anti-cancer categories of foods is off the mark.
 
-__My advice is extremely different. I recognize that raw, uncooked vegetables and fruits offer the most powerful protection against dis- ease and I encourage my patients to eat huge salads and at least four fresh fruits per day. Diets with little raw foods are not ideal. As the amount of raw fruits and vegetables are increased in a person's diet,weight loss and blood pressure are lowered effortlessly.__
+__My advice is extremely different. I recognize that raw, uncooked vegetables and fruits offer the most powerful protection against disease and I encourage my patients to eat huge salads and at least four fresh fruits per day. Diets with little raw foods are not ideal. As the amount of raw fruits and vegetables are increased in a person's diet,weight loss and blood pressure are lowered effortlessly.__
 
 Additionally, raw foods contain enzymes, some of which can survive the digestive process in the stomach and pass into the small intestines. These heat-sensitive elements may offer significant nutri- tional advantages to protect against disease, according to investiga- tors from the Department of Biochemistry at Wright State University School of Medicine.
 
@@ -241,8 +241,152 @@ __Eating a wide variety of raw and conservatively cooked plant foods (such as st
 ##### You Cannot Buy Your Health in a Bottle - You Must Earn It!
 
 
+When your nutrient intake is out of balance, health problems may result. For example, beta-carotene has been touted as a powerful an- tioxidant and anti-cancer vitamin. However, in recent years we have discovered that beta-carotene is only one of about five hundred carotenoids. Scientists are finding that taking beta-carotene supple- ments is not without risk, and supplements are certainly a poor sub- stitute for the real tiling — the assortment of various carotenoid compounds found in plants.
+
+The reason researchers believed beta-carotene had such a pow- erful anti-cancer effect was that populations with high levels of beta- carotene in their bloodstream had exceedingly low rates of cancer. More recently we found out that these people were protected against cancer because of hundreds of carotenoids and phytochemicals in the fruits and vegetables they were consuming. It wasn't that beta-carotene was responsible for the low incidence of cancer; it merely served as a flag for those populations with a high fruit and vegetable intake. Un- fortunately, many scientists confused the flag for the ship.
+
+##### Cancer Is Much More Preventable than Treatable
 
 
+The process of carcinogenesis entails an accumulation of mutations or damage to our DNA (the cellular blueprint) over the course of twenty to forty years. __You must start protecting yourself today, not after you find out you have cancer. Cancer is much more preventable than treatable.__ Instead, many try to dig a well after their house is on fire. 
+
+The process of cellular disintegration is extremely prolonged, and we know that many pre-neoplastic lesions (abnormal, but not yet cancer) disappear spontaneously. __Studies on both humans and animals have shown that plant-derived nutrients are able to prevent the occurrence of, and even reverse, DNA damage that may later result in cancer. Fortunately, we have the potential to suppress the progression of cancer in its early stages by how we choose to eat. The ability to remove and fix these partially damaged cells is proportional to their exposure to phytochemicals.__
 
 
+When we consume a sufficient variety and quantity of phyto- chemical substances to maximally arm our immune defenses against cancer, we afford ourselves the ability to repair DNA damage, detox- ify cancer-causing agents, and resist disease in general. These same substances also activate other immune-enhancing mechanisms that improve our defenses against viruses and bacteria, making our body disease-resistant in general.
+
+##### Green Plant Foods vs. Animal Foods
+
+__Steak only has 5.4 grams of protein per 100 calories and broccoli has 11.2 grams, almost twice as much.__
+
+Keep in mind that most of the calories in meat come from fat; green vegetables are mostly protein (all calories must come from fat, carbohydrate, or protein).
+
+
+##### Popeye Was Right - Greens Pack a Powerful Punch
+
+The biggest animals — elephants, gorillas, rhinoceroses, hippopota- muses, and giraffes — all eat predominantly green vegetation. How did they get the protein to get so big? Obviously, greens pack a pow- erful protein punch. In fact, all protein on the planet was formed from the effect of sunlight on green plants. The cow didn't eat an- other cow to form the protein in its muscles, which we call steak. The protein wasn't formed out of thin air — the cow ate grass. Not that protein is such a big deal or some special nutrient to be held in high esteem. I am making this point because most people think animal products are necessary for a diet to include adequate protein. I am merely illustrating how easy it is to consume more than enough pro- tein while at the same time avoiding risky, cancer-promoting sub- stances such as saturated fat. Consuming more plant protein is also the key to achieving safe and successful weight loss.
+
+When you consider the fiber, phytochemicals, and other essen- tial nutrients, green vegetables win the award for being the most nutrient-dense of all foods. We will give greens a score of 100 and judge all other foods against this criterion.
+
+##### The Secret of Extreme Longevity
+
+Interestingly, there is one food that scientific research has shown has a strong positive association with increased longevity in humans. So which food do you think that is?
+
+__The answer is raw, leafy greens, normally referred to as salad. Leafy greens such as romaine lettuce, kale, collards, Swiss chard, and spinach are the most nutrient-dense of all foods.__
+
+Most vegetables contain more nutrients per calorie than any other food and are rich in all necessary amino acids. For example, ro- maine lettuce, which gets 18 percent of its calories from fat and al- most 50 percent of its calories from protein, is a rich powerhouse with hundreds of cancer-fighting phytonutrients that protect us from a variety of threatening illnesses. Being healthy and owning a disease- resistant body is not luck; it is earned.
+
+__In a review of 206 human-population studies, raw vegetable consumption showed the strongest protective effect against cancer of any beneficial food.__
+
+I tell my patients to put a big sign on their refrigerator that says THE SALAD IS THE MAIN DISH.
+
+The word salad here means any vegetable eaten raw or uncooked, e.g., a bowl of cold pasta in olive oil with a token vegetable is not a salad. __I encourage my patients to eat two huge salads a day, with the goal of consuming an entire head of romaine or other green lettuce daily.__
+
+##### Green Salad Is Less than 100 Calories per Pound
+
+Did you notice that 100 calories of broccoli is about ten ounces of food, and 100 calories of ground sirloin is less than one ounce of food? With green vegetables you can get filled up, even stuffed, yet you will not be consuming excess calories. __Animal products, on the other hand, are calorie-dense and relatively low in nutrients, especially the crucial anti-cancer nutrients.__
+
+##### Weighing Food and Trying to Eat Smaller Portions Is Futile
+
+We must consume a certain level of calories daily to feel satisfied. So now I ask you to completely rethink what you consider a typical portion size. To achieve superior health and a permanently thin physique, you should eat large portions of green foods. When con- sidering any green plant food, remember to make the portion size huge by conventional standards. Eating large portions of these super- healthy foods is the key to your success.
+
+# The Dark Side of Animal Protein
+
+### The China Project
+
+
+Fortunately, evidence from a massive series of scientific investigations has shed some light on the confusion. The China-Cornell-Oxford Project (also known as the China Project) is the most comprehensive study on the connection between diet and disease in medical history.
+
+__Researchers found that as the amount of animal foods increased in the diet, even in relatively small increments, so did the emergence of the cancers that are common in the West. Most cancers occurred in direct proportion to the quantity of animal foods consumed.__
+
+__In other words, as animal food consumption approached zero, cancer rates fell. Areas of the country with an extremely low consumption of animal food were virtually free of heart attacks and cancer.__ An analysis of the mortality data from 65 counties and 130 villages showed a significant association with animal protein intake (even at relatively low levels) and heart attacks, with a strong protective effect from the consumption of green vegetables.
+
+The China Project showed a strong correlation between cancer and the amount of animal protein, not just animal fat, consumed. Consumption of lean meats and poultry still showed a strong correla- tion with higher cancer incidence. These findings indicate that even low-fat animal foods such as skinless white-meat chicken are impli- cated in certain cancers.
+
+##### Heart Health - It's Not Just Fat and Cholesterol
+
+Scientific studies provide evidence that animal protein's effect on blood cholesterol may be significant. This is one of the reasons those switching to a low-fat diet do not experience the cholesterol lower- ing they expect unless they also remove the low-fat animal products as well. Surprising to most people is that yes, even low-fat dairy and skinless white-meat chicken raise cholesterol.
+
+__Red meat is not the only problem. The consumption of chicken and fish is also linked to colon cancer.__
+
+Chicken has about the same amount of cholesterol as beef, and the production of those potent cancer-causing compounds called het- erocyclic amines (HCAs) are even more concentrated in grilled chicken than in beef." Another recent study from New Zealand that investi- gated heterocyclic amines in meat, fish, and chicken found the greatest contributor of HCAs to cancer risk was chicken. 
+
+Likewise, studies indicate that chicken is almost as dangerous as red meat for the heart. Regarding cholesterol, there is no advantage to eating lean white instead of lean red meat. __The best bet for overall health is to significantly limit or eliminate all types of meat—red and white.__ Dr. Campbell explains further his view that animal protein (in addition to animal fats) are implicated in disease causation: " I really believe that dietary protein—both the kind and the amount—is more significant, as far as cholesterol levels are concerned, than is saturated fat. Certainly it is more significant than dietary cholesterol. We do know that animal protein has a quick and major impact on enzymes involved in the metabolism of cholesterol. Whether it is the immune system, various enzyme systems, the uptake of carcinogens into the cells, or hormonal activities, animal protein generally only causes mischief."
+
+__Cholesterol levels can be decreased by reducing both saturated fat and animal protein while eating more plant protein.__
+
+The China Project confirmed that there were virtually no heart attacks in populations that consume a life-long vegetarian diet and almost no heart attacks in populations consuming a diet that is rich in natural plant foods and receives less than 10 percent of its calories from animal foods.
+
+##### Understanding the Conflicting and Confusing Cancer Studies
+
+After studying multiple diseases, not just one type of cancer, the researchers involved in the China Project concluded: "There appears to be no threshold of plant-food enrichment or minimization of ani- mal product intake beyond which further disease prevention does not occur. These findings suggest that even small intakes of foods of animal origin are associated with significant increases in plasma cho- lesterol concentration, which are associated, in turn, with significant increases in chronic degenerative disease mortality rates." In other words, populations with very low cholesterol levels have not only low heart-disease rates but low cancer rates as well.
+
+##### Cancer Is a Fruit- and Vegetable-Deficiency Disease
+
+
+Not surprisingly, fruits and vegetables are the two foods with the best correlation with longevity in humans. Not whole-wheat bread, not bran, not even a vegetarian diet shows as powerful a correlation as a high level of fresh fruit and raw green salad consumption. The National Cancer Institute recently reported on 337 different studies that all showed the same basic information:
+1. Vegetables and fruits protect against all types of cancers if con- sumed in large enough quantities. Hundreds of scientific stud- ies document this. The most prevalent cancers in our country are mostly plant-food-deficiency diseases.
+2. Raw vegetables have the most powerful anti-cancer properties of all foods.    
+3. Studies on the cancer-reducing effects of vitamin pills contain- ing various nutrients (such as folate, vitamin C and E) get mixed reviews; sometimes they show a slight benefit, but most show no benefit. Occasionally studies show that taking iso- lated nutrients is harmful, as was discussed earlier regarding beta-carotene.  
+4. Beans, in general, not just soy, have additional anti-cancer benefits against reproductive cancers, such as breast and prostate cancer.  
+
+##### A Vegetarian Diet Is No Guarantee of Good Health
+
+People who omit meat, fowl, and dairy but fill up on bread, pasta, pretzels, bagels, rice cakes, and crackers may be on a low-fat diet, but because their diet is also low in vitamins, minerals, phytochemicals, important essential fatty acids, and fiber, it is conspicuously inade- quate and should not be expected to protect against cancer. Addi- tionally, because these refined grains are low in fiber, they do not make you feel full until after you have taken in too many calories from them. In other words, both their nutrient-to-calorie and nutrient- to-fiber ratios are extremely low.
+
+Let me repeat this again to be clear: __Following a strict vegetarian diet is not as important as eating a diet rich in fruits and vegetables.__ A vegetarian whose diet is mainly refined grains, cold breakfast cere- als, processed health-food-store products, vegetarian fast foods, white rice, and pasta will be worse off than a person who eats a little chicken or eggs, for example, but consumes a large amount of fruits, vegeta- bles, and beans.
+
+Remember, long-term vegans (stria vegetarians who consume no dairy or other foods of animal origin) almost never get heart at- tacks. If you have heart disease or a strong family history of heart dis- ease, you should consider avoiding all animal-based products.
+
+__The research shows that those who avoid meat and dairy have lower rates of heart disease, cancer, high blood pressure, diabetes, and obesity. The data is conclusive: vegetarians live longer in America, probably a lot longer.__
+
+##### How Much Longer Do Vegetarians Live?
+
+Whether you eat a vegetarian diet or include a small amount of animal foods, for optimal health you must receive the majority of your calories from unrefined plant food. It is the large quantity of unrefined plant food that grants the greatest protection against developing serious disease.
+
+##### Understanding the Factors Involved in the Development of Cancer
+
+Carcinogenesis, the process that leads to cancer, is believed to occur in a series of steps. It is a multistage process that begins with precan- cerous cellular damage that gradually proceeds to more malignant changes. The first step is the development of cellular abnormalities, which eventually leads to cancer. This usually occurs during adolescence, and soon after puberty. __Remember that unhealthy childhood nutritional practices cause excessive sex hormone production and early pathologic changes in the breast tissue that set the stage for cancer many years later.__
+
+We know that puberty at an earlier age is a significant marker of increased risk, and we know that there is overwhelming evidence that ovarian hormones play a crucial role, at all stages, in the development of breast cancer. __It is common knowledge among physicians that the earlier a woman matures, as measured by the age of her first menstrual period, the higher her risk for breast cancer.__ Both early menarche and greater body weight are markers of increased risk of breast cancer.
+
+__Women are not the only sex affected; the same increased risk as a result of early maturation is seen with both prostate cancer and testicular cancer.__ If we grow and mature more rapidly, we increase our cancer risk and age faster. We see the same thing in lab animals;if we feed them so they grow faster, they die younger.
+
+A greater consumption of animal foods leads to a higher level of hormones related to early reproductive function and growth
+These hormonal abnormalities persist into adulthood.  Uterine fibroids also develop from a diet deficient in fruits and vegetables and heavy in meat. As the consumption of meat increases and vegetation decreases, one's risk of fibroids increases proportionately. In other words, the stage is set by our poor dietary habits early in life. Breast and prostate cancer are strongly affected by our dietary practices when we are young.
+
+In China, animal-food consumption correlated well with early menarche and increasing levels of sex hormones. Serum testosterone levels had the best correlation with breast cancer, even better than estrogen. Of note is that increasing levels of testosterone significantly increases the risk of both breast cancer and prostate cancer. Testos- terone rises as well with increasing levels of obesity, and being over weight is another consistent risk factor.
+
+__Cheese has more saturated fat and more hormone-containing and promoting substances than any other food, and the incidence of our hormonally sensitive cancers has skyrocketed.__
+
+##### Unraveling the Protein Myth
+
+The public as well as the media are confused about this issue. They continue to associate the term better nutrition with earlier matu- rity and larger stature resulting from our greater consumption of animal protein and animal fats. These unfavorable trends are repeat- edly reported as positive events. Earlier writers and nutritionists have mistakenly equated rapid growth with health. I believe an increased rate of growth is not a good thing. The slower a child grows, the slower he or she is aging. Slower growth, taking longer to reach maturity, is predictive of a longer life in animal studies. We are finding  the same thing in humans: an unnaturally rapid growth and premature puberty are risk factors for cancers and other diseases later in life. Evidence continues to mount that these same factors leading to early maturity and excessive growth in childhood increase the occurrence of cancer in general, not just breast and prostate cancer. Excluding malnutrition or serious disease, the slower we grow and mature, the longer we live. 
+
+The other side of the story is that in the past ten years it is not just the fat in animal foods that causes cancer and heart disease. Animal protein is also getting a bad rap by legitimate nutritional researchers and scientists in studies. Scientists have discovered a link between animal protein and cancer in both laboratory and human epidemio- logical studies, and reducing one's consumption of animal protein slows the aging process.
+
+##### Exercise Powerfully Reduces Cancer Risk
+
+
+Researchers  report that women who exercise regularly reduce their risk of developing breast cancer substantially. Their study involved more than 25,000 women age twenty to fifty-four at the time of their entry into the study. The researchers found that younger, premenopausal women (under forty-five years old) who exercised regularly had 62 percent less risk than sedentary women. The risk reduction was highest for lean women who exercised more than four hours per week; these women had a 72 percent reduction in risk.
+
+Researchers looking for answers to these questions studied women with cancer and found that saturated fat in the diet promoted a more rapid spread of the cancer. Other researchers found similar results. For a woman who already has cancer, her risk of dying increased 40 percent for every 1,000 grams of fat consumed monthly. Studies also indicate that high fruit and vegetable intake improved survival, and fat on the body increases the risk of a premature death。
+
+Today the link between animal products and many different diseases is as strongly supported in the scientific literature as the link between cigarette smoking and lung cancer.
+
+The other side of the story is that in the past ten years it is not just the fat in animal foods that causes cancer and heart disease. Animal protein is also getting a bad rap by legitimate nutritional researchers and scientists in studies. Scientists have discovered a link between animal protein and cancer in both laboratory and human epidemio- logical studies, and reducing one's consumption of animal protein slows the aging process.
+
+##### Are Dairy Foods Protecting Us fromOsteoporosis？
+
+__Hip fractures and osteoporosis are more frequent in populations in which dairy products are commonly consumed and calcium in- takes are commonly high. On the contrary, studies show fruits and vegetables are protective against osteoporosis.__
+
+A negative calcium balance means more calcium is excreted in the urine than is absorbed through digestion. A positive calcium bal- ance means more calcium is absorbed than is excreted. A negative balance over time results in bone loss, as the additional calcium must come from our primary calcium storehouse, our bones. __Epidemiologic studies have linked osteoporosis not to low cal- cium intake but to various nutritional factors that cause excessive calcium loss in the urine.__ The continual depletion of our calcium re- serves over time, from excessive calcium excretion in the urine, is the primary cause of osteoporosis.
+
+Published data clearly links increased urinary excretion of calcium with animal-protein intake but not with vegetable-protein intake. Plant foods, though some may be high in protein, are not acid-forming. Animal-protein ingestion results in a heavy acid load in the blood. This sets off a series of reactions whereby calcium is re- leased from the bones to help neutralize the acid. The sulfur-based amino acids in animal products contribute significantly to urinary acid production and the resulting calcium loss. The Nurses Health Study found that women who consumed 95 grams of protein a day had a 22 percent greater risk of forearm fracture than those who consumed less than 68 grams.
+
+##### Got Milk — Or Leave It?
+
+Dairy is best kept to a minimum. There are many good reasons not to consume dairy. For example, there is a strong association between dairy lactose and ischemic heart disease. There is also an association between high-growth-promoling foods such as dairy products and cancer. There is a clear association between milk consumption and testicular cancer. Dairy fat is also loaded with various toxins and is the primary source of our nation's high exposure to dioxin. Dioxin is a highly toxic chemical compound that even the U.S. Environmental Protection Agency admits is a prominent cause of many types of cancer in those consuming dairy fat, such as butter and cheese.
+
+# Are You Dying to Lose Weight? A CLOSER LOOK AT THE ATKINS PLAN, THE ZONE, AND EATING FOR YOUR BLOOD TYPE
 
