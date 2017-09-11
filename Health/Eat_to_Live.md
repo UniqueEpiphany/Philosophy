@@ -325,7 +325,7 @@ After studying multiple diseases, not just one type of cancer, the researchers i
 
 
 Not surprisingly, fruits and vegetables are the two foods with the best correlation with longevity in humans. Not whole-wheat bread, not bran, not even a vegetarian diet shows as powerful a correlation as a high level of fresh fruit and raw green salad consumption. The National Cancer Institute recently reported on 337 different studies that all showed the same basic information:
-1. Vegetables and fruits protect against all types of cancers if con- sumed in large enough quantities. Hundreds of scientific stud- ies document this. The most prevalent cancers in our country are mostly plant-food-deficiency diseases.
+1. Vegetables and fruits protect against all types of cancers if consumed in large enough quantities. Hundreds of scientific stud- ies document this. The most prevalent cancers in our country are mostly plant-food-deficiency diseases.
 2. Raw vegetables have the most powerful anti-cancer properties of all foods.    
 3. Studies on the cancer-reducing effects of vitamin pills contain- ing various nutrients (such as folate, vitamin C and E) get mixed reviews; sometimes they show a slight benefit, but most show no benefit. Occasionally studies show that taking iso- lated nutrients is harmful, as was discussed earlier regarding beta-carotene.  
 4. Beans, in general, not just soy, have additional anti-cancer benefits against reproductive cancers, such as breast and prostate cancer.  
@@ -388,5 +388,61 @@ Published data clearly links increased urinary excretion of calcium with animal-
 
 Dairy is best kept to a minimum. There are many good reasons not to consume dairy. For example, there is a strong association between dairy lactose and ischemic heart disease. There is also an association between high-growth-promoling foods such as dairy products and cancer. There is a clear association between milk consumption and testicular cancer. Dairy fat is also loaded with various toxins and is the primary source of our nation's high exposure to dioxin. Dioxin is a highly toxic chemical compound that even the U.S. Environmental Protection Agency admits is a prominent cause of many types of cancer in those consuming dairy fat, such as butter and cheese.
 
-# Are You Dying to Lose Weight? A CLOSER LOOK AT THE ATKINS PLAN, THE ZONE, AND EATING FOR YOUR BLOOD TYPE
+# Are You Dying to Lose Weight? A CLOSER LOOK AT THE ATKINS PLAN, THE ZONE, AND EATING FOR YOUR BLOOD TYPE, THEY Don't work!
+
+To make matters even worse, you pay an extra penalty from a diet so high in fat and protein to generate a chronic ketosis. Besides the increased cancer risk, your kidneys are placed under greater stress and will age more rapidly. It can take many, many years for such damage to be detected by blood tests. By the time the blood reflects the ab- normality, irreversible damage may have already occurred. Blood tests that monitor kidney function typically do not begin to detect prob- lems until more than 90 percent of the kidneys have been destroyed.
+
+Protein is metabolized by the liver, and the nitrogenous wastes generated are broken down and then excreted by the kidney. These wastes must be eliminated for the body to maintain normal purity and a stable state of equilibrium. Most doctors are taught in medical school that a high-protein diet ages the kidney. What has been accepted as the normal age-related loss in renal function may really be a cumulative injury secondary to the heavy pressure imposed on the kidney by our high-protein eating habits.
+
+# Nutritional Wisdom Makes You Thin
+
+### UnrefinedCarbohydratesEncourageWeight Loss
+
+Our bodies need carbohydrates more than any other substance. Our muscle cells and brains are designed to run on carbohydrate. Carbohydrate-rich foods, when consumed in their natural state, a low in calories and high in fiber compared with fatty foods, processe foods, or animal products.
+
+Fat contains about nine calories per gram, but protein and carbo- hydrates contain approximately four calories per gram. So when you eat high-carbohydrate foods, such as fresh fruits and beans, you can eat more food and still keep your caloric intake relatively low. __Th high fiber content of (unrefined) carbohydrate-rich food is anoth crucial reason you will feel more satisfied and not crave more fo when you make unrefined carbohydrates the main source of calorie in your diet.__
+
+
+Protein, fat, and carbohydrates are called macronutrients. Vitamins and minerals are referred to as micronutrients. __All plant foods are a mixture of protein, fat, and carbohydrate (the macronutrients). Even a banana contains about 3.5 percent protein, almost the same as mother's milk. Fruit and starchy vegetables, such as sweet potatoes, corn, carrots, and butternut squash, are predominantly carbohydrate but also contain some fat and protein. Green vegetables are about half protein, a quarter carbohydrate, and a quarter fat. Legumes and beans are about half carbohydrate, a quarter protein, and a quarter fat.__
+
+One of the principles behind the health and weight-loss formula in this book is not to be overly concerned about the macronutrient balance; if you eat healthful foods, you will automatically get enough of all three macronutrients as long as you do not consume too many calories from white flour, sugar, and oil. __So don't fear eating foods rich in carbohydrates and don't be afraid of eating fruit because it contains sugar.__ Even the plant foods that are high in carbohydrate contain sufficient fiber and nutrients and are low enough in calories to be considered nutritious. As long as they are unrefined, they should not be excluded from your diet. In fact, it is impossible to glean all the nutrients needed for optimal health if your diet does not contain lots of carbohydrate-rich food.
+
+
+Fresh fruits, beans and legumes, whole grains, and root vegeta- bles are all examples of foods whose calories come mainly from car- bohydrate. It is the nutrient-per-calorie ratio of these foods that determines their food value. There is nothing wrong with carbohy- drates; it is the empty-calorie, or refined, carbohydrates that are re- sponsible for the bad reputation of carbs.
+
+##### Understanding the Concept of Caloric Density
+
+__When subjects eating foods low in caloric density, such as fruits and vegetables, are compared with those consuming foods richer in calories, those on meal plans with higher calorie concentrations were found to consume twice as many calories per day in order to satisfy their hunger.__
+
+Your body must burn about 23 percent of the calories consume! from carbohydrates to make the conversion from glucose into fat, but it converts food fat into body fat quickly and easily. __One hundred calories of ingested fat can be converted to ninety-seven calories of body fat, burning a measly three calories. So the fat you eat is easily and rapidly stored by the body.__
+
+__Green vegetables are so incredibly low in calories and rich in nutrients and fiber that the more you eat of them, the more weight you will lose. One of my secrets to nutritional excellence and superior health is the one pound-one pound rule. That is, try to eat at least one pound of raw green vegetables a day and one pound of cooked/ steamed or frozen green vegetables  as well. One pound raw and one pound cooked — keep this goal in mind as you design and eat every meal. This may be too ambitious a goal for some of u to reach, but by working toward it, you will ensure the dietary bal- ance and results you want. The more greens you eat, the more weight you will lose. The high volume of greens not only will be your secret to a thin waistline but will simultaneously protect you against life- threatening illnesses.__
+
+Vegetables have powerful levels of carotenoids and other nutrients that prevent age-related diseases. For example, the leading cause of age-related blindness in America is macular degeneration. If you eat greens at least five times per week, your risk drops by more than 86 percent. Lutein and zeaxanthin are carotenoids with powerful disease-prevention properties. Researchers have found that those with the highest blood levels of lutein had the healthiest blood vessels, with little or no atherosclerosis.
+
+
+It is true that most of us eat too much fat, but scientific research is vealing that too little fat can be a problem, too. We have learned t not merely are we consuming too much fat but, more important, are consuming the wrong fats. Americans consume too much of some bad fats and not enough of other fats that we need to maximize health.
+
+Optimal health depends on the proper balance of fatty acids in the diet. The modern diet that most of us eat supplies an excessive amount of omega-6 fat, but often too little omega-3 fat. This relative deficiency of omega-3 fats has potentially serious implications. Also, the con- sumption of too much omega-6 fat leads to high levels of arachidonic acid (AA). Higher levels of arachidonic acid can promote inflammation.
+
+##### There's Something Fishy about Fish Oils
+
+Most of the publicity about the beneficial effects of essential fats has focused on fish oils, which are rich in EPA, an omega-3 fat. One problem with fish oils is that much of the fat has already turned ran- cid. If you have ever cut open a capsule of fish oil and tasted it, you will find it tastes like gasoline. Not only are many people intolerant of the burping, indigestion, and smelling like a fish, but it is also pos- sible that the rancidity of the fat places a stress on the liver. I have noted abnormal liver function on the blood tests of a few patients who were taking fish oil tablets. These few patients had their liver function return to normal when they stopped taking the fish oils.
+
+Large amounts of fish oils inhibit immune function." Lowering the function of natural killer cells is not a good thing, as our defenses against infection and cancer diminish. Because of this immune sup- pression, as well as the toxicity issues, I do not routinely recommend that my patients take fish oil capsules — though there are a few ex- ceptions.
+
+##### Does Fish Prevent Heart Disease?
+
+There are two components to a heart attack or stroke. First, you must develop atherosclerotic plaque. This plaque builds up over many years from eating a diet deficient in unrefined plant foods. Almost all Americans have such plaque. Autopsy studies demonstrate atherosclerosis even in the vast majority of American children.
+
+Once these fatty plaques accumulate and partially block a coronary artery, a clot can develop in a defect or crack in the surface of the plaque. This clot is called a thrombus, which can enlarge and completely block the vessel, causing a heart attack, or break off and travel upstream, obstructing a more distal coronary site. A traveling thrombus is called an embolus. Emboli and thrombi are the cause of almost all heart attacks and strokes.
+
+__However, the best way to prevent a heart attack or stroke is to follow a high-nutrient diet with little or no animal products, thereby ensuring that such blockages don't develop in the first place.__
+
+__The bottom line: Choose fish over other animal products, but be aware that the place where it was caught, and the type of fish, matters. Don't accept recreational fish from questionable waters. Farmed fish is safer. Never eat high-mercury-content fish. Don't eat fish more than twice a week, and if you have a family history of hemor- rhagic stroke, limit it further to only once a month.__
+
+##### Extracted Oils, One Slick Customer
+
+
+
 
