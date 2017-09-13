@@ -323,6 +323,87 @@ All in all, you should feel perfectly at ease adopting a wide range of motions: 
 
 # 25. A Quick Refresher of the Top Ten Hot Spots in the Clitoral Network
 
+# 26. Grand Openings: The First Kiss
+
+##### The Approach
+
+* Run your fingers gently through her pubic hair.
+* Be sure to tease her amply. Kiss her softly on the inner thigh, as succulent smacks (lips pursed, no tongue) on her inner and outer lips, or even on the top of the head. Make sure that your first kiss is less about direct contact with the clitoris and more about appreciating the entire genital area.
+* Breathe hotly on her vulva.
+* Blow, ever so gently, on her clitoral head.
+* If she's still wearing her panties, kiss her through them. Then delicately peel them to the side to reveal a glistening wet vulva.
+
+> CAUTION: Never, under any circumstances, blow into a woman's vagina as though trying to fill it with air. Doing so is seriously dangerous. Blowing into a woman's vagina may cause an embolism and lead to death. Breathe on her; blow lightly on her; never blow into her.
+
+Tease her, taunt her, tantalize her—make her think that she's not ever going to get it, ever, and then, just when she's on the brink of utter madness, give it to her.
+
+##### The Kiss
+
+Make your first lick a slow and tender “ice cream” lick from bottom to top. Make it long and lasting. Take it all in.
+
+* Start at the base of her vaginal entrance, the fourchette, and work your way up.
+* Take in the full length of her labia minora (inner lips) and let your tongue rest briefly against her frenulum, the area just under the clitoral head.
+* As you go over the head, brush it lightly as a feather, and then proceed to her front commissure (the area just above the head).
+* Push down on her commissure with the tip of your tongue and feel the sinewy clitoral shaft beneath it.
+* As you kiss her slowly from top to bottom, press your finger lightly against her perineum (the expanse of skin just below her vaginal entrance).
+* When you lick the full span of her vaginal entrance from top to bottom, place your hand atop her mons pubis and nudge it gently toward her abdomen. This will stretch the skin and tighten her vaginal entrance, enabling you to lushly encompass her sensitive inner labia as you lick.
+* As an alternative to the standard position, grab hold of her upper thighs prior to the first kiss and pivot her legs up into the air so that only her butt is touching the bed and her vulva is completely exposed.
+
+No matter what your approach, take it long and slow, from bottom to top, and savor every step of the journey. Now that you've lavished her with the first kiss (that long full lick), let your tongue rest flat against the length of her vaginal entrance. Encompass her vulva with your tongue. Take a moment to let the experience of the first kiss resonate. 
+
+Make sure it's love at first lick.
+
+# Establishing Rhythm
+
+##### A Make and Break Moment
+
+Make sure that the interval between licks is long enough to let each one resonate fully and completely. Like calling out her name in a tunnel or cave, wait until the echo has completely subsided before calling out once again. Later, as the momentum builds to a peak, action and reaction will overlap until they become virtually indistinguishable; but for now that’s a ways off.
+
+* Feel your tongue against her vulva. Let your respective nerve endings find one another and conjoin in embrace. See and feel your tongue fusing with her vulva, and then . . .
+* Break the contact. Your tongue should completely disconnect from her vulva for a split second, causing the slightest of tremors in her pelvis: an almost imperceptible shudder of shock from the loss of your tongue. Then . . .
+* Make contact again. As with the first kiss, take a long, slow lick from bottom to top, and lushly brush against her clitoral head with the flat broad side of your tongue.
+* Then, once again maintain a flat tongue against her vulva; don’t press too hard and don’t favor any one particular part.
+
+__It's this “breaking and making” of contact between tongue and vulva that allows the buildup of sexual tension and will ultimately demand release through orgasm.__
+
+##### Build a Solid Foundation
+
+* Get a rhythm going: long, slow lick/flat, still tongue; long, slow lick/flat still tongue. Each complete set should last about ten seconds, with five seconds on the lick and five on the flat embrace of tongue against vulva.
+* Repeat this pattern for about three minutes, or fifteen to twenty complete sets.
+
+> Tongue Tip: As you get more familiar with the routine, use your hand to push up against her mons pubis for the lick (this tightens her vaginal entrance and brings her labia closer together), and then release when you lay your tongue flat against her vulva.
+
+##### Be Alluring
+
+* Now avoid the head.
+* Next, vary the routine with small halfway licks, from bottom to mid vagina, avoiding the area of the clitoral head altogether.
+* Focus on stimulating her inner labia. This way you're not overexciting the head (remember how sensitive it is). You're teasing it, gently coaxing the head out from under its protective clitoral hood by switching your tongue strokes: from light, repetitive licks that gently graze her to deeper, halfway licks that now avoid her altogether.
+
+You've alerted the clitoral head to a variation in rhythm; you've rescinded the attention that it grew accustomed to. In this way, you compel the head to find you, to seek out your tongue.
+
+##### Smother Her in Love
+
+Now, just when the head has been lured out from under its hood in search of the tongue that has been denied her, give it to her—smother her in it. Press the soft tip of your tongue into the head. Like a wave washing over her, bathe the head for five seconds with your wet tongue. Feel her shudder with pleasure.
+
+> Tongue Tip: As an enhancement to these routines, perform them with her legs in the air. Get a firm grip on her thighs and raise both legs so that only her butt is touching the bed. Lick her vulva tenderly and gingerly and note the tension in her legs and pelvic area as she pushes against your hands. This “pushing against a point of resistance” is a key element in developing hypertonicity—the muscular tension that contributes to sexual response and orgasmic release.
+
+##### Play the Numbers
+
+Go back to your halfway licks. Start with a set of five.
+Then, once again, bathe the head with the soft, wet tip of your tongue. With each complete set, increase the amount of halfway licks you apply by one, until you reach a total of ten.
+
+This routine establishes rhythm and builds sexual tension, with just a hint of unpredictability. Most important, this routine acclimates the clitoral head to oral stimulation.
+
+##### Let's Review
+
+1. In this chapter, we discussed the importance of establishing rhythm and building a solid foundation, as well as exercising restraint when you might be tempted to apply rough passion.
+2. After the first kiss, lick her vaginal entrance from bottom to top, and then rest your tongue flat against the surface of her vulva. Do this fifteen to twenty times.
+3. Next, lick her five times with halfway strokes, focusing on the labia and staying clear of the head. On the sixth stroke, finish the movement and press the soft tip of your tongue into her head.
+4. Repeat this patter, increasing each set of halfway licks by one until you get to ten.
+5. Use this routine to establish rhythm and acclimate the head to the attentions of your tongue.
+
+# 28. Developing T ension, Part 1
+
 
 
 
