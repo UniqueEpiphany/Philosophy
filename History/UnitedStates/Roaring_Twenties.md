@@ -1,0 +1,7 @@
+The phrase Roaring Twenties describes the 1920s, a time in North America when art, society, and culture were rapidly changing. The term 'Roaring' applies here, as art, society and culture were rapidly improving and therefore 'Roaring'. Prohibition was in place and so North America was a very 'wise' and 'clean-cut' place to be.
+
+The North American economy during the 1920s was doing very well because World War I had just ended. Many new products were being made for the consumer. Products were being produced on a huge scale throughout North America, one example of these products is the 'Model T Ford', a car that was seen in every state of the USA.
+
+The culture of the Roaring Twenties was very different from before. Women's roles were changed. __Liberal young women, called flappers, wore short skirts, cut their hair short, and listened to a new form of music called jazz. Women had gotten the right to vote.__ Writers like F. Scott Fitzgerald and Ernest Hemingway were called the __Lost Generation__ because they moved out of the United States after the war. African-American art and culture also grew a lot during the __Harlem Renaissance__.
+
+Even though North America was doing very well in terms of prosperity, a lot of problems still arose. One of the main problems in North America during the 1920's was Organized Crime. Gangs of foreign immigrants were importing illegal alcohol, tobacco, firearms etc. One of the most famous gangsters of this time was __Al Capone__.
