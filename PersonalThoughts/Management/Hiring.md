@@ -9,3 +9,5 @@ The hiring process is difficult and very time-consuming. And it can lead to disa
 What I like about this excerpt from Steve Jobs is that it shows you just how passionate he was about hiring the best people. And he took it seriously – it wasn’t something to be rushed.
 
 But he also gives sound reasoning. I don’t think anyone could argue the fact that spending time hiring good people is the best investment of your time.
+
+Every company should be extremely serious about hiring people, because it is eventually people that make impact on company. And we should avoid using third-party headhunter to recruit people. Every company has its unique culture, headhunters aren't familier with your culture and most of them don't know how to access candidates' skill, experience and personality. Interviwer should be a person who is familier with company culture and know exactly what kind of people this job is looking for and should have enough experience to judge a candidate's experience and personality. 
