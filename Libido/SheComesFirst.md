@@ -404,8 +404,42 @@ This routine establishes rhythm and builds sexual tension, with just a hint of u
 
 # 28. Developing T ension, Part 1
 
+##### The Importance of Teamwork
 
+NOW IT'S TIME to put some real ground behind us on the road of arousal. So far, your tongue has been leading; but now, in the spirit of good old-fashioned teamwork, let's get your fingers and hands into the action. It's all for one and one for all.
 
+Think of your tongue, hands, and fingers as three members of a jazz trio. As with any great band, everyone has to work together in order to create beautiful music.
+
+To begin with, let's explore the potential of a single finger and then later introduce more complex combinations. Use your index finger to:
+
+* Flirt with her inner lips; trace the edges with your fingertip. Squeeze and pinch them playfully. Acquaint your index finger with all the diverse parts of her vulva, and take note of her responses.
+* Gently stimulate her front commissure, the smooth area just above the clitoral head and hood.
+* Lightly tap her frenulum, the region just below her clitoral head and above her vaginal entrance where her labia minora (inner lips) meet.
+* Tease her fourchette, the area where the labia majora (outer lips) meet at the base of the vaginal entrance.
+* Gently tickle the lower base of her vaginal entrance.
+* As you allow your finger to wander, apply simple, steady tongue strokes. Note how the two work in combination. Now that you've teased her vulva, slowly insert the first two inches or so of your index finger into her vagina. Your finger should go in quite easily (assuming she's amply aroused and lubricated) and you will likely feel her interior pelvic muscles throb in response and the clitoral cuff tighten around you.
+* Hold the position straight and still as you continue to apply simple tongue strokes. Don't rush to insert more fingers. Save them for later. For now, there's a teasing aspect to the still, single finger and its presence stimulates her pelvic muscles to work: you're giving her something to reach for that ultimately eludes her grasp.
+
+##### A Teasing Thumb
+
+The nublike thumb is a perfect example of the power of width over depth.
+As a playful alternative to your index finger, insert your thumb just inside her vaginal entrance, as if you're making a fingerprint. In addition to being shorter and squatter than the index finger, the thumb has more heft—so use it for shallower movements and to stimulate the surface of the vulva.
+
+> Tongue Tip: Use your thumb in combination with your index finger. While your index finger is inserted in her vaginal entrance, rotate your thumb downward to the six o'clock position and then graze, tickle and press her perineum (the area of erectile tissue just below her vagina and above her anus). Or rotate your thumb back up to the twelve o'clock position and massage her frenulum, the area just below the clitoral head, while your finger is inserted in her vaginal entrance.
+
+##### Sturdy Hands
+
+No jazz trio would be complete without the backup of the bass. Such is the role of your hands; not flashy like the tongue, or deft like the fingers, but nevertheless crucial in supporting the melody.
+
+Assuming for the moment that you're right-handed, it's your left hand that will generally be employed in this supportive role, as your right hand will be focused on finger work (or vice versa if you're left- handed). Working from below, your hand provides a solid foundation for the action happening above. A firm, steady hand enables you to execute your tongue strokes with precision.
+
+Place your free hand under her buttocks and cradle them firmly. You should be able to easily squeeze both cheeks together. Use your hand to keep her in position and fine-tune the position of her vulva in relation to your mouth. Make no mistake: a steady hand is crucial, the backbone of a great session—it helps her to easily maintain persistent contact with your mouth and allows you to modulate the pressure against her vulva.
+
+##### Let's Review
+
+1. In this chapter we commenced the process of developing sexual tension. We achieved this by introducing manual stimulation, namely in the form of a single finger inserted into the vaginal entrance. In doing so, we noted the response of her clitoral cuff and pelvic muscles.
+2. We also highlighted an alternative to the index finger in the form of the thumb, as well as a playful combination in which the perineum is stimulated in combination with the index finger.
+3. In addition to simple manual stimulation, we also emphasized the importance of using a hand to support her weight and keep her firmly in position. A steady grip helps you execute your tongue strokes and maintain persistent contact with her vulva.
 
 
 
