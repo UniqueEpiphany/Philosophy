@@ -1,0 +1,1 @@
+Frederick Emmons "Fred" Terman ( June 7, 1900 – December 19, 1982) was an American professor and academic administrator. He is widely credited (together with William Shockley) with being the father of Silicon Valley.
