@@ -118,3 +118,69 @@ Keeping people crowded also has the collateral benefit of killing facilities env
 
 ### Work, eat, and live together
 
+In the Internet Century, a product manager's job is to work together with the people who design, engineer, and develop things to make great products. Some of this entails the traditional administrative work around owning the product life cycle, defining the product roadmap, representing the voice of the consumer, and communicating all that to the team and management. Mostly, though, smart creative product managers need to find the technical insights that make products better. These derive from knowing how people use the products (and how those patterns will change as technology progresses), from understanding and analyzing data, and from looking at technology trends and anticipating how they will affect their industry. To do this well, product managers need to work, eat, and live with their engineers (or chemists, biologists, designers, or whichever other types of smart creatives the company employs to design and develop its products).
+
+### Your parents were wrong, messiness is a virtue
+
+But while offices can be crowded and messy, they need to provide employees with everything they need to get the job done. In our case, Google is a computer science company, so the thing that our smart creatives need most is computing power. That’s why we give our engineers access to the world’s most powerful data centers and Google’s entire software platform. This is another way to kill facilities envy among smart creatives: Be very generous with the resources they need to do their work. Be stingy with the stuff that doesn’t matter, like fancy furniture and big offices, but invest in the stuff that does.
+
+There is a method to this madness, and it's not profligacy. We invest in our offices because we expect people to work there, not from home. Working from home during normal working hours, which to many represents the height of enlightened culture, is a problem that—as Jonathan frequently says—can spread throughout a company and suck the life out of its workplace. Mervin Kelly, the late chairman of the board of Bell Labs, designed his company’s buildings to promote interactions between employees. It was practically impossible for an engineer or scientist to walk down the long halls without running into a colleague or being pulled into an office. This sort of serendipitous encounter will never happen when you are working at home. Google's AdSense product, which developed into a multibillion-dollar business, was invented one day by a group of engineers from different teams who were playing pool in the office. Your partner or roommate is probably great, but the odds of the two of you coming up with a billiondollar business during a coffee break at home are pretty small, even if you do have a pool table. Make your offices crowded and load them with amenities, then expect people to use them.
+
+### Don’t listen to the HiPPOs
+
+When it comes to the quality of decision-making, pay level is intrinsically irrelevant and experience is valuable only if it is used to frame a winning argument. Unfortunately, in most companies experience is the winning argument. We call these places “tenurocracies,” because power derives from tenure, not merit. It reminds us of our favorite quote from Jim Barksdale, erstwhile CEO of Netscape: “If we have data, let’s look at data. If all we have are opinions, let’s go with mine.”
+
+When you stop listening to the hippos, you start creating a meritocracy, which our colleague Shona Brown concisely describes as a place where “it is the quality of the idea that matters, not who suggests it.” Sounds easy, but of course it isn’t. Creating a meritocracy requires equal participation by both the hippo, who could rule the day by fiat, and the brave smart creative, who risks getting trampled as she stands up for quality and merit.
+
+The hippo who doesn’t understand what’s going on is more apt to try to intimidate her way to success. If you are in a position of responsibility but are overwhelmed by the job, it's easier to try to bluster your way through with a "because I said so" approach. You need to have confidence in your people, and enough self-confidence to let them identify a better way.
+
+For a meritocracy to work, it needs to engender a culture where there is an “obligation to dissent”. If someone thinks there is something wrong with an idea, they must raise that concern. If they don’t, and if the subpar idea wins the day, then they are culpable. In our experience, most smart creatives have strong opinions and are itching to spout off; for them, the cultural obligation to dissent gives them freedom to do just that. Others, though, may feel more uncomfortable raising dissenting views, particularly in a public forum. That's why __dissent must be an obligation, not an option__. Even the more naturally reticent people need to push themselves to take on hippos.
+
+Meritocracies yield better decisions and create an environment where all employees feel valued and empowered. They demolish the culture of fear, the murky, muddy environment in which hippos prefer to wallow. And they remove biases that can hamper greatness.
+
+### The rule of seven
+
+Organizational design is hard. What works when you're small and in one location does not work when you get bigger and have people all over the world. This is why there are so many reorgs: If there is no perfect answer, companies lurch between the less-than-optimal alternatives. To help avoid this dance, the best approach is to put aside preconceived notions about how the company should be organized, and adhere to a few important principles.
+
+First, keep it flat. In most companies, there is a basic underlying tension: People claim that they want a flat organization so they can be closer to the top, but in fact they usually long for hierarchy. Smart creatives are different: They prefer a flat organization, less because they want to be closer to the top and more because they want to get things done and need direct access to decision-makers.
+
+The solution we finally hit upon was slightly less draconian but just as simple. We call it the rule of seven. We’ve worked at other companies with a rule of seven, but in all of those cases the rule meant that managers were allowed a maximum of seven direct reports. The Google version suggests that managers have a minimum of seven direct reports (Jonathan usually had fifteen to twenty when he ran the Google product team). We still have formal organization charts, but the rule (which is really more of a guideline, since there are exceptions) forces flatter charts with less managerial oversight and more employee freedom. With that many direct reports—most managers have a lot more than seven—there simply isn’t time to micromanage.
+
+### Every tub (not) on its own bottom
+
+We believe in staying functionally organized - with separate departments such as engineering, products, finance, and sales reporting directly to the CEO-as long as possible, because organizing around business divisions or product lines can lead to the formation of silos, which usually stifle the free flow of information and people. Having separate P&Ls seems like a good way to measure performance, but it can have the unfortunate side effect of skewing behavior: The leaders of a business unit are motivated to prioritize their unit’s P&L over the company’s. If you do have P&Ls, make sure they are driven by real external customers and partners. And whenever possible, avoid secret organizational documents.
+
+### Do all reorgs in a day
+
+There are times when a reorganization actually does make sense. When that day comes, we have a couple of rules. First, beware of the tendencies of different groups: Engineers add complexity, marketing adds management layers, and sales adds assistants. Manage this (and being aware of it is a big first step). Second, do all reorgs in a day. This may seem impossible to accomplish, but there is a counterintuitive point working in its favor. When you have a company of smart creatives, you can tolerate messiness. In fact, it helps, because smart creatives find it empowering, not confusing.
+
+Since there is no perfect organizational design, don’t try to find one. Get as close as you can and let your smart creatives figure out the rest.
+
+### The Bezos two-pizza rule
+
+The building block of organizations should be small teams. Jeff Bezos, Amazon’s founder, at one point had a “two-pizza team” rule, which stipulates that teams be small enough to be fed by two pizzas. Small teams get more done than big ones, and they spend less time politicking and worrying about who gets credit. Small teams are like families: They can bicker and fight, or even be downright dysfunctional, but they usually pull together at crunch time. Small teams tend to get bigger as their products grow; things built by only a handful of people eventually require a much bigger team to maintain them. This is OK, as long as the bigger teams don’t preclude the existence of small teams working on the next breakthroughs. A scaling company needs both.
+
+### Organize the company around the people whose impact is the highest
+
+One last organizational principle: Determine which people are having the biggest impact and organize around them. Decide who runs the company not based on function or experience, but by performance and passion. Performance should be relatively easy to measure, but passion can be trickier to gauge. It is native in the best leaders—the sort of people who are elected captain of the team without even volunteering—and it draws others to them like iron filings to a magnet.
+
+Bill Campbell, the former Intuit CEO and ongoing coach and mentor to us both, often quotes Debbie Biondolillo, Apple’s former head of human resources, who said, __“Your title makes you a manager. Your people make you a leader.”__.
+
+Eric once chatted with Warren Buffett about what he looks for when acquiring companies. His answer was: a leader who doesn’t need him. If the company is run by a person who is performing well because she is committed to its success, and not just by making a bundle by selling to Berkshire Hathaway, then Warren will invest. Internal teams work in much the same way: You want to invest in the people who are going to do what they think is right, whether or not you give them permission. You抣l find that those people will usually be your best smart creatives.
+
+This does not mean you should create a star system, in fact the best management systems are built around an ensemble, more like a dance troupe than a set of coordinated superstars. This approach creates long-term consistency, with a deep bench of high-performance talent ready to lead when the opportunity appears.
+
+__At the most senior level, the people with the greatest impact—the ones who are running the company— should be product people. When a CEO looks around her staff meeting, a good rule of thumb is that at least 50 percent of the people at the table should be experts in the company’s products and services and responsible for product development. This will help ensure that the leadership team maintains focus on product excellence. Operational components like finance, sales, and legal are obviously critical to a company’s success, but they should not dominate the conversation.__
+
+You also want to select as your leaders people who don’t place their own interests above the company's. We see this a lot in companies with business units or divisions, where the success of the unit, as we noted before, can take precedence over that of the company as a whole.
+
+Once you identify the people who have the biggest impact, give them more to do. When you pile more responsibility on your best people, trust that they will keep taking it on or tell you when enough is enough. As the old saying goes: If you want something done, give it to a busy person.
+
+### Exile knaves but fight for divas
+
+
+
+
+
+
+
