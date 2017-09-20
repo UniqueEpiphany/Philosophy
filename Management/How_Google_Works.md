@@ -178,6 +178,47 @@ Once you identify the people who have the biggest impact, give them more to do. 
 
 ### Exile knaves but fight for divas
 
+Arrogance, for example, is a knavish tendency that is a natural byproduct of success, since exceptionalism is fundamental to winning. Nice humble engineers have a way of becoming insufferable when they think they are the sole inventors of the world’s next big thing. This is quite dangerous, as ego creates blind spots.
+
+The character of a company is the sum of the characters of its people, so if you strive for a company of sterling character, that is the standard you must set for your employees. There is no room for knaves. And generally, in our experience, once a knave, always a knave. (Tom Peters: “There is no such thing as a minor lapse of integrity.”)
+
+You must always be firm with the people who violate the basic interests of the company. Don’t bite them, but do act swiftly and decisively. Nip crazy in the bud.
+
+Knaves are not to be confused with divas. Knavish behavior is a product of low integrity; diva-ish behavior is one of high exceptionalism. Knaves prioritize the individual over the team; divas think they are better than the team, but want success equally for both. Knaves need to be dealt with as quickly as possible. But as long as their contributions match their outlandish egos, divas should be tolerated and even protected. Great people are often unusual and difficult, and some of those quirks can be quite offputting. Since culture is about social norms and divas refuse to be normal, cultural factors can conspire to sweep out the divas along with the knaves. As long as people can figure out any way to work with the divas, and the divas’ achievements outweigh the collateral damage caused by their diva ways, you should fight for them. They will pay off your investment by doing interesting things.
+
+### Overworked in a good way
+
+Work-life balance. This is another touchstone of supposedly “enlightened” management practices that can be insulting to smart, dedicated employees. The phrase itself is part of the problem: For many people, work is an important part of life, not something to be separated. The best cultures invite and enable people to be overworked in a good way, with too many interesting things to do both at work and at home. So if you are a manager, it’s your responsibility to keep the work part lively and full; it’s not a key component of your job to ensure that employees consistently have a forty-hour workweek.
+
+Manage this by giving people responsibility and freedom. Don't order them to stay late and work or to go home early and spend time with their families. Instead, tell them to own the things for which they are responsible, and they will do what it takes to get them done. Give them the space and the freedom to make it happen.
+
+Give your smart creatives control, and they will usually make their own best decisions about how to balance their lives.
+
+If someone is so critical to the company’s success that he believes he can’t unplug for a week or two without things crashing down, then there is a larger problem that must be addressed. No one should or can be indispensable. Occasionally you will encounter employees who create this situation intentionally, perhaps to feed their ego or in the mistaken belief that “indispensability” equals job security. Make such people take a nice vacation and make sure their next-in-line fills in for them while they are gone. They will return refreshed and motivated, and the people who filled their shoes will be more confident. (This is a huge hidden benefit of people taking maternity and paternity leaves too.)
+
+### Establish a culture of Yes
+
+The “Just Say No” syndrome can creep into the workplace too. Companies come up with elaborate, often passive-aggressive ways to say no: processes to follow, approvals to get, meetings to attend. No is like a tiny death to smart creatives. No is a signal that the company has lost its start-up verve, that it’s too corporate. Enough no’s, and smart creatives stop asking and start heading to the exits.
+
+To keep this from happening, establish a culture of Yes. Growing companies spawn chaos, which most managers try to control by creating more processes. While some of these processes may be necessary to help the company scale, they should be delayed for as long as possible. Set the bar high for that new process or approval gate; make sure there are very compelling business reasons for it to be created. We like this quote from American academic and former University of Connecticut president Michael Hogan: "My first word of advice is this: Say yes. In fact, say yes as often as you can. Saying yes begins things. Saying yes is how things grow. Saying yes leads to new experiences, and new experiences will lead you to knowledge and wisdom.? An attitude of yes is how you will be able to go forward in these uncertain times."
+
+### fun, not Fun
+
+A great start-up, a great project—a great job, for that matter—should be fun, and if you’re working your butt off without deriving any enjoyment, something’s probably wrong. Part of the fun comes from inhaling the fumes of future success. But a lot of it comes from laughing and joking and enjoying the company of your coworkers.
+
+A defining mark of a fun culture is identical to that of an innovative one: The fun comes from everywhere. The key is to set the boundaries of what is permissible as broadly as possible. Nothing can be sacred.
+
+It’s fun, and can only occur in a permissive environment that trusts its employees and doesn’t defer to the “what happens if this leaks?” worrywarts. It’s impossible to have too much of that kind of fun. The more you have, the more you get done.
+
+### You must wear something
+
+Not long after he became the CEO of Novell, Eric heard a good piece of advice from an acquaintance. “When you are in a turnaround,” the man told him, “find the smart people first. And to find the smart people, find one of them.”
+
+It is important not to simply criticize the existing culture, which will just insult people, but rather to draw a connection between business failures and how the culture may have played a hand in those situations.
+
+Promote transparency and sharing of ideas across divisions. Open up everyone’s calendar so that employees can see what other employees are doing. Hold more company-wide meetings and encourage honest questions without reprisal. And when you get those tough questions, answer them honestly and authentically.
+
+### Ah’cha’rye
 
 
 
