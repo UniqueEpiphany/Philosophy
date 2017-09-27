@@ -3,16 +3,17 @@
 There are inevitably times when things break, it could be related to hardware/network/project issues.  A dashboard that monitors our servers/processes can help us spot issues before clients do, or even better prevent those issues from happening.  And if something bad really happens, it also helps us track down the issue faster.
 
 ##### NewsHQ bring better troubleshooting tools
-While, you may want to ask, why spend time building a new dashboard? Doesn't FactSet already have monster charts and other tools/platforms already?  Or why not just use an open source one?  Well, one primary reason is that those platforms do a decent job,  while they barely offer any team/project-specific customizations.  The consequence is that we still need to build different tools (python scripts, webpages) to help us perform regular operations. And these tools are scattered around everywhere, they could be in perforce, github, and they are even  stored in people's local directories. NewsHQ is a platform to integrate all these tools as well as bring more troubleshooting features. What's better, it has centralized log to audit those operations.
+While, you may want to ask, why spend time building a new dashboard? Doesn't FactSet already have monster charts and other tools/platforms already?  Or why not just use an open source one?  Well, one primary reason is that those platforms do a decent job,  while they barely offer any team/project-specific customizations.  The consequence is that we still need to build different tools (python scripts, webpages) to help us perform regular operations. And these tools are scattered around everywhere, they could be in perforce, github, and they are even  stored in people's local directories. NewsHQ is a platform to integrate all these tools as well as bring more troubleshooting features. It acts as our operations manager. What's better, it has centralized log to audit those operations.
 
 ##### NewsHQ bring better metrics
-Other problems with those platforms is that they are not easy to use, or lack the metrics and features our own team need. NewsHQ lets us choose whatever metrics we want to use, which is more effective because different teams and different projects need different types of metrics. Moreover, we can use a wide range of interactive charts and tubulars to display our metrics. And we won't get the flexibility from those platforms, they only offer predefined charts and tubulars.
+Other problems with those platforms are that sometimes they are not easy to use, or lack the metrics and features our own team need. NewsHQ lets us choose whatever metrics we want to use, which is more effective because different teams and different projects need different types of metrics. Moreover, we can use a wide range of interactive charts and tubulars to display our metrics. And we won't get the flexibility from those platforms, since they only offer predefined charts and tubulars.
 
 # Demo
 
 ### Home page
 
 The left side is "System Overview". It has the process heatmap which lists all the hosts and running processes on them.
+The timer here shows you when the chart will pull live data from backend get updated.
 Each small square represents a process, "green" means the process is running, "red" means it is down.
 When your mouse hover over any small square, it will show the process name. After you  click it, a new tab will be open and direct you to the corresponding process page. Each process page can be cunstomized by monitoring different metrics(process responding time, latency or throughput), and right now by default, the uptime/downtime is shown up there.
 
@@ -44,7 +45,7 @@ If metrics goes up to 50%, it will be highlighted as yellow, if goes up to 70%, 
 
 What if you want to get more system information about a specific host?
 
-Just lick any host here, it will guide you to a specifix host page which gives you a more detailed system information about that host.
+Just lick any host here, it will guide you to a specific host page which gives you a more detailed system information about that host.
 
 All the information and charts on this page are  updated every 20 seconds.
 
@@ -112,13 +113,6 @@ Cluster health tab give the JVM heap usage and CPU usage information of all the 
 
 Finally, the statistics tab give you information about how many documents each news feed has in the cluster. You can even choose  any datetime range, even just seconds.
 
-##### MATT page
-
-NewsDistribution team and content team use MATT page regularlly to perform documents backfill and Elasticsearch update.
-You can basically halt the documents indexing here. It talk to MATT service directly.
-
-No need to go to details here.
-
 ### Stats page
 
 ##### Alerting Notifier page
@@ -149,6 +143,10 @@ We also have a simple filter here.
 # In Summary
 
 NewsHQ is our own dashboard helping us to stay on top of our operations by monitoring, tracking, and reporting real-time/historical metrics about our servers and processes. It also acts as a proxy to manage our processes/databases directly. Whether we're concerned about a major event or keeping an eye on day-to-day activities, we can use NewsHQ Dashboard to focus on what matters most to us.  We can display any metrics here, use any chart we prefer, customize in any way we want. 
+
+NewsHQ is live on FactSet.io now, feel free to play with it and we are looking forward to get feedback from you guys.
+
+Thanks
 
 Question?
 
