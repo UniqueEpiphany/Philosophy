@@ -443,6 +443,14 @@ __The bottom line: Choose fish over other animal products, but be aware that the
 
 ##### Extracted Oils, One Slick Customer
 
+__Americans consume large quantities of oil, a refined food, processed at high temperatures. When oils are subject to heat, the chemical structure of the essential fatty acids are changed to toxic derivatives known as lipid peroxides and other toxic and potentially cancer-causing by-products. Clearly, it is best to avoid fried foods and heated oils, not only because they will destroy your chances to achieve a normal weight but because they are also potentially cancer-causing.__
 
+Get your fats as nature packaged them. It is best to consume the little fats we need in their original unprocessed, unheated, and natu- ral packages: whole food. Ground flaxseed is healthier than flaxseed oil, as it contains valuable fiber, lignans, and other phytonutrients, not just omega-3 fat. Raw sunflower seeds, pumpkin seeds, corn, olives, and avocados are healthy, but their extracted oils may not be. Even cold-pressed oils are subject to the damaging effects of heat and contain lipid peroxides. So I usually recommend to my patients that instead of consuming the oils, they consume a tablespoon of ground flaxseed daily, or some walnuts, to ensure adequate omega-3 fat in- take.
 
+Remember, when you extract the oil from the whole food it was packaged in, you remove it from its antioxidant- and phytochemical- rich protective environment. You turn a moderate nutrient-to-calorie food into a low nutrient-to-calorie food, and at the same time dam- age the quality of the fat with heat. Romaine lettuce, kale, collards, and Swiss chard are rich in fiber, vitamins, minerals, phytochemicals, vegetable protein, and essential fats — again, another reason I con- sider leafy green vegetables the king of all foods.
 
+##### Is Therean Increased Risko f Stroke from Low-Fat Diets?
+
+Let me remind you that the best fats are the monounsaturated fats and essential fats (omega-3 and omega-6) present in whole, nat- ural plant foods, including avocados, olives, and raw nuts and seeds. Studies continue to show that consumption of raw nuts protects against both heart attack and stroke, without the risks of increasing heart disease and cancer, as is the case with the high consumption of animal-origin fats. When the fats you consume are from whole food, rather than oil, you gain nature's protective package: a balance of vitamins, minerals, fibers, and phytonutrients.
+
+##### Trans Fat: A Wolf in Sheep's Clothing
