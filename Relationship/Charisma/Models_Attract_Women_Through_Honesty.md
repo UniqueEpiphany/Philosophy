@@ -171,4 +171,81 @@ And the key to it is probably something you wouldn’t expect. In fact, it’s s
 
 ## Chapter 2 Power in Vulnerability
 
+When most men hear the word “vulnerability,” their immediate reaction is to associate it with weakness. In general, men are raised to withhold their emotions, to not show weakness, and to ignore any hint of introspection. On top of that, most of the popular dating advice out there encourages guys to be aloof, standoffish, judgmental, and at times, scathing towards women.
+
+For instance, making yourself vulnerable doesn’t just mean being willing to share your fears or insecurities. It can mean putting yourself in a position where you can be rejected, saying a joke that may not be funny, asserting an opinion that may offend others, introducing yourself to a group of people you don’t know, telling a woman that you like her and want to date her. All of these things require you to stick your neck out on the line emotionally in some way. You’re making yourself vulnerable when you do them.
+
+In this way, vulnerability represents a form of power, a deep and subtle form of power. It’s courageous, even. A man who’s able to make himself vulnerable is saying to the world, “Screw the repercussions; this is who I am, and I refuse to be anyone else.” He’s saying he is non-needy and high status.
+
+Most people think of a man who’s vulnerable as a man who cowers in the corner and begs others to accept him or not hurt him. This is not vulnerability; this is surrender. It’s weakness.
+
+Think of it this way, there are two men. One stands tall, looks straight ahead. Looks people in the eye when he speaks to them. Says what he thinks and is comfortable if some people disagree with him. When he makes a mistake, he shrugs it off and apologizes if necessary. When he sucks at something, he admits it. He’s unafraid to express his emotions, even if that means he gets rejected because of them sometimes. He has no problem moving on to people who don’t reject him, but instead like him for who he is.
+
+The second man hunches over, his eyes dart around and he is unable to look someone in the eye without getting uncomfortable. He puts on a cool persona that is always aloof. He performs. He avoids saying things that may upset others, and sometimes even lies to avoid conflict. He’s always trying to impress people. When he makes a mistake, he tries to blame others or pretend like it didn’t happen. He hides his emotions and will smile and tell everyone he’s fine even when he’s not. He’s scared to death of rejection. And when he is rejected, it sends him reeling, angry, and desperate to find a way to win back the affection of the person who doesn’t like him.
+
+Which one of these two men is more powerful? Which one is more vulnerable? Which one is more comfortable with himself? Which one do you think women would be more attracted to?
+
+From an evolutionary perspective, vulnerability makes perfect sense as an indicator to women of male status and fitness. Let’s say there’s a tribe of 20 men, all hunter-gatherers, all men with more or less equal possessions (or lack thereof).
+
+Some of the men in the tribe are constantly reactive to what the other men tell them. They don’t admit faults. They change their behavior and what they say to win the approval of the other men. When something doesn’t go their way, they look to blame someone else. What would this say about their status in their tribe? If they’re basing all of their behavior on the approval of the other men and are constantly covering up their weaknesses, it says that they’re low status, not trustworthy, unconfident, and probably not going to be a dependable father.
+
+Now imagine other men in the same tribe who are unfazed by the neediness or temper tantrums of the other men around them. They focus purely on the task at hand and don’t change their behavior based on what others think of them. When challenged, they stand up for themselves, but when they’re wrong, they also admit their fault since they see no reason to hide their weakness. They have a sense of honor. They don’t react to any of the other men around them; rather, the other men react to them.
+
+This behavior implies high status, a man who is dependable, comfortable in his strengths and weaknesses, a man who can be counted on and who is likely to rise through the ranks and provide for his offspring.
+
+He’s likely to succeed and likely to be a dependable father. It’s likely that women have been naturally selected to choose high-status men based on their non-neediness first, and then their looks and accomplishments second, since looks and accomplishments tend to be reflections of non-needy behavior, not the other way around. This non-needy behavior indicates a man who is comfortable with vulnerability, who isn’t afraid to express who he is, warts and all, to the world. This plays out in multiple arenas — in the life decisions he makes, the extent of his courage and the way he communicates to others.
+
+Chances are, if you’re reading this and are bad with women, then you’re bad with women because you don’t express your true feelings and intentions very well. Perhaps you’re afraid to introduce yourself to women you find attractive or to ask them out on a date. Perhaps you consistently fall into boring conversation topics because they’re “safe” and shallow and you don’t have to risk offending or inciting any one with them. Perhaps you don’t assert yourself and your desires enough. Perhaps you hide from your own sexuality and become scared or nervous when people expose theirs. Perhaps you’re stuck in a job or lifestyle you don’t truly enjoy because other people always told you that it was a good idea and you didn’t want to upset or disappoint the people around you. Dressing extremely well makes you feel uncomfortable, smiling at strangers makes you feel creepy, and the idea of hitting on a woman openly scares you because of the possibility of rejection.
+
+All of these are symptoms of a root problem: an inability to be vulnerable.
+
+Many men, like you, and like me, were raised in such a way as to not express our emotions freely. For whatever reason — maybe our home situation, maybe childhood trauma, maybe our parents didn’t express their emotions either — we’ve grown up with deeply embedded habits designed to keep us stifled and bottled up. Don’t be controversial. Don’t be unique. Don’t do anything “crazy” or “stupid” or “selfish.”
+
+Connecting with women in this way, by being vulnerable — as opposed to performance or narcissism — will result in some of the best interactions and relationships of your life. Vulnerability is the path of true human connection and becoming a truly attractive person. As psychologist Robert Glover once said, “Humans are attracted to each other’s rough edges.
+
+Show your rough edges. Stop trying to be perfect. Expose yourself and share yourself without inhibition. Take the rejections and lumps and move on because you’re a bigger and stronger man. And when you find a woman who loves who you are (and you will), revel in her affection.
+
+But opening yourself up to vulnerability, training yourself to become comfortable with your emotions, with your faults, and with expressing yourself without inhibitions doesn’t happen overnight. This entire book can be viewed as a how-to guide for vulnerability. But it’s a process, and at times, a grueling one.
+
+### The Pain Period
+
+Maybe you’ve already been through this. Maybe you’ve already spent months or years avoiding taking action because you’re afraid of the consequences. Maybe you’ve put off that career change, that wardrobe upgrade, joining that dating site. Maybe you’ve missed opportunities with women who liked you because you were too afraid to make a move. Maybe you convinced yourself that you needed to “know how” first. Maybe you convinced yourself that you needed to see someone else do it first.
+These are all forms of avoidance. And they all come from a deep-seated neediness, and that neediness can only be cured through making yourself more vulnerable. And at first, that vulnerability is going to hurt.
+
+You can’t skip it. The only way out of it is through it.
+
+We all have weaknesses, embarrassments, and vulnerabilities. A needy man is terrified to show them because he cares more about what others feel about him than what he feels about himself. A non-needy man is comfortable showing his flaws because he’s more comfortable with how he feels about himself than how others feel about him.
+
+Sharing yourself openly with others forces that transition between the two: from needy and afraid of what others think, to non-needy and comfortable in how you feel about yourself. __The reason is because sharing these truths about yourself forces you to own them and accept them, and also demonstrates that feeling embarrassed or ashamed is just that, just another feeling, another part of your humanity, not the end of the world.__
+
+The real question is, do you have to work through this emotional baggage and neediness with the women you’re dating? Not necessarily. You can work through them by sharing them with friends, family members, or a therapist. But there are some issues that can only be dealt with by women you’re seeing: particularly intimacy and sexual issues.
+
+But slowly, you will chisel away at yourself. You’ll humble yourself, expose yourself, and then learn that it’s OK. It’s OK to be rejected. It’s OK to make mistakes. It’s OK to say something stupid. Don’t give up. Women will not dislike you for your rejections and mistakes or saying something stupid.
+
+They’ll like you for your ability to be OK with being rejected, to make mistakes, and to say something stupid. The man who always has the perfect line to say to her is a man she will not trust because he shows no vulnerability and his words are inauthentic and, therefore, needy.
+
+The man who has some good lines and some bad lines and is able to admit the latter and laugh at the former, this is a man she will trust and a man she will open herself up to, both emotionally and physically. Become comfortable with being imperfect. It’s your rough edges she’ll be attracted to.
+
+__Ultimately, what women want — what we all really want — is a strong, independent, non-needy partner who fulfills us, who we can share ourselves with and receive them in return.__
+
+Stop looking at communication as the surface information and instead, pay attention to the emotions and motivations behind everything that you do and say. That's where all of the meaning is.
+
+I’ll say this again because this often gets lost: vulnerability is not a technique or tactic. It is a way of being. It’s not something you learn, it’s a mindset you practice.
+
+Here’s a piece of advice: if you ever find yourself thinking, “That didn’t work,” or “This doesn’t work,” then you are performing and you are needy. Point blank. Period.
+
+The whole idea of something “working” on women, is itself a form of neediness. Because a sexual connection is not something you achieve. It’s not a level in a video game that you beat. It’s not something you can strategize. It’s either there or it’s not.
+
+When women emotionally connect with you and your desire for them, it’s not what you’re saying or the words you’re choosing, it’s the emotion behind those words. If the emotion behind your words is needy and self-serving, then she will become turned off no matter what you say, even if you’re telling her the most personal or heartfelt story. If the emotion behind your words is genuine and vulnerable, then it will turn her on, even if you’re talking about your grocery list or how you named your dog. Yes, you can fake this stuff in the short-term if you become a good actor. But obviously, don’t do that. We’re not in this for short-term fixes, remember?
+
+So the catch is that your statements must be authentic. Your statements towards women must be unconditional, otherwise it’s not really being vulnerable. If you tell a woman that she’s beautiful only because you think it’ll give you a better chance of sleeping with her, then amazingly, she will not be very flattered. Try it. It’s true. Give women false compliments and see how they respond. They won’t respond very well.
+
+But communicate with honest appreciation and you’ll be amazed how she lights up in front of you.
+
+So the catch is that everything you say must be as authentic as possible. There’s no shortcut. There are no tricks. You say it because you mean it and mean it because you say it. The more nervous it makes you, the better, because it means you’re being authentic and making yourself vulnerable.
+
+How attractive you are is based on your lack of neediness. Your non-neediness is based on how vulnerable you’re able to make yourself. And how vulnerable you’re able to make yourself is based on how honest you are to yourself and others.
+
+## Chapter 3 “The Gift of Truth”
+
 
