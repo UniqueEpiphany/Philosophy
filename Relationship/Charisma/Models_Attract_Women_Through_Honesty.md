@@ -422,3 +422,63 @@ Men will often have to spend a lot of time seeking truth within themselves first
 
 ### Finding Your Truth
 
+It’s important to look at the reasons why you’re over-invested around women and have an honest discussion with yourself about it to try and resolve it.
+
+For instance, perhaps you’re over-invested around women because you’re a virgin and have no experience with them. Then you need to look at how being inexperienced is causing you to undervalue yourself and seek validation. You must become comfortable with the idea of being inexperienced and be comfortable admitting that insecurity if you wish to gain a lot of experience.
+
+Or perhaps your ex-girlfriend left you for another man and you’re bitter. Before you can undo the anger that is causing you to be over-invested, you need to come to terms with why you’re angry and accept why your ex left you.
+
+For me, a big part of this was accepting that, actually, I had been a pretty naive and shitty boyfriend to my ex-girlfriend and I could understand why she would want to leave me. I also recognized flaws and insecurities in her that I hadn’t noticed when we were together and that she hadn’t been the perfect angel that I assumed she was. All in all, I came to terms with the experience and the anger receded, allowing me to let go and become less invested in women I dated.
+
+Another example is a guy who has never been “cool” before. Perhaps he was picked on growing up and made fun of all through high school. Maybe the popular guys in school told him he was gay and a pussy.
+
+Perhaps now he’s older, better looking and more social and is looking to compensate for all of those years of feeling insignificant. So he does it by throwing money around and attracting a lot of superficial attention. He’s having fun, but he’s scratching that itch, he’s finally living out that need to be the cool and popular guy. But at some point, he has to come to terms with this, accept it, and become comfortable admitting it. Then he can move on.
+
+Again, if you’re only trying to get women to impress other guys, then you’re not in a very good place, and you need to take a serious look at your motivations. To undo this, you must come to terms with why you’re seeking attention and approval from other men — maybe it goes as far back as your father — and then seek to find that approval through other means. Join a sports team. Take your co-workers out for beers. Buy season tickets to the local basketball team. There are much healthier ways to get male camaraderie than to try and impress other guys by getting girls.
+
+As you’ll see, the book is divided up into three core areas: building a congruent and attractive lifestyle for yourself, overcoming your fears and anxieties, and becoming socially adept at expressing your emotions and sexuality without shame or hesitation.
+
+### Friction and Projection
+
+Attraction is great, but in and of itself, it’s not always enough to consummate a romantic or sexual relationship.
+There are two main reasons that prevent attracted women from being with you, and they are both quite common: I call them friction and projection.
+
+Friction is when a woman finds you to be an attractive man, but there are value differences or external circumstances that prevent her from acting on that attraction or being interested in you.
+
+
+The most common case is the girlfriend/wife. This happens all the time. You meet a woman, you two really click, she’s laughing at all your jokes, smiles when you smile, looks into your eyes a little bit too long…
+…and she’s married.
+
+Friction can be religious, cultural or simply due to poor logistics.
+
+Ultimately, your values determine your behavior. And that’s kind of the point of all of this: YOUR values determine your behavior, not what you think she wants, not what you think others want, but what is best for you and best for the relationship.
+
+Projection is completely different. There are a lot of women who, for whatever reason, are afraid of their own sexuality and/or openly sexual men. They harbor trust issues and resentment with men. Usually, this is because they have a history of some sort of emotional/sexual abuse and/or they’ve experienced a long string of disappointments with the men in their life.
+
+When confronted with a non-needy man — a man without these similar emotional hang-ups and distrust — these women will usually be untrusting and lash out in response. They are not lashing out for lack of attraction, but they are lashing out because they are attracted and that strong sexual attraction scares them, particularly if you’re a man who feels threatening to them. Their view of male sexuality is negative and when they are confronted with an honest and attractive man they’ll often attack you and try to tear you down for it.
+
+These are the women who will get angry and say snide things like, “I bet you say that to all the girls,” or will find reasons to push you away and then regret it and want you back. They will pretend to miss your calls and then get angry when you don’t persist in calling them, or they’ll make up excuses to ignore you on a date and then get mad when you don’t behave like a gentleman.
+
+Needless to say, you’re better off without these women. Take the rejection and move on.
+
+Generally, these women are extremely needy, and because of the large investment gap between you two, they will try to project their own investment onto you. They will accuse you of being demanding, overbearing, too horny, untrustworthy, or weak. These accusations will have little to no connection to reality, and a non-needy man will either walk away from a girl like this or simply ignore her accusations if they have no bearing.
+
+The only men willing to put up with such nonsense are men who are highly needy as well. The needy man will spend all of his time placating and trying to fix the accusations and problems the woman projects onto him. And the most messed up part about this is that the needy man will enjoy fixing and placating the needy woman. The needy man enjoys it because this constant “fixing” of the distrusting woman’s fears and accusations makes the needy man feel needed.
+
+If the man is narcissistic, then he will usually lash out right back at the woman and they will engage in a relationship full of petty, unimportant drama, playing out emotions and projecting their histories of pain and marginalization onto each other over and over again, until one of them finally becomes conscious enough to break the cycle and move on. Sometimes this happens quickly. Other times it takes months or years. Either way, it’s always unpleasant.
+
+The uncomfortable truth is that the majority of women are going to have high degrees of friction and projection when you meet them. With most of the women you meet, things are simply not going to work no matter what you do or say. This is to be expected. And this is fine. You are going to be incompatible with most of the women in the world and to hold any hopes of being highly compatible with most is an illusion of grandeur and a figment of your own narcissistic tendency.
+
+Incompatibility is a fact of life. No matter how you behave or what you’re into, the majority of women out there at any given time are simply not going to be interested or emotionally available to you. Our job is not to attract every woman, but to screen for women with a high potential of being attracted to who we really are.
+
+The reality of incompatibility defines our entire strategy of dating women. To base our strategy on anything else is inefficient at best and downright damaging at worst. The world is what it is, it’s our job to simply present ourselves as boldly and clearly to it as possible, accept the reactions and move on the opportunities. Any attempt to control the reactions of others or take some kind of power over the reactions you receive is both foolish and illusory.
+
+# Part II: Strategy
+
+# Chapter 4 : Polarization
+
+
+
+Excerpt From: Mark Manson. “Models.” iBooks. 
+
+Excerpt From: Mark Manson. “Models.” iBooks. 
