@@ -248,4 +248,177 @@ How attractive you are is based on your lack of neediness. Your non-neediness is
 
 ## Chapter 3 “The Gift of Truth”
 
+But what I learned is that regardless of what you say to a woman, the intention and implications of why you are saying it are far more powerful than the words themselves.
+
+You can say the lamest and grossest (or funniest, depending on your perspective) thing to women, and if the sub-communication is, “I really don’t care if you laugh or run away horrified, but here’s who I am, take it or leave it,” this sub-communicates a rock-bottom level of investment and an incredibly high level of vulnerability.
+
+Most men can relate to the idea of trying to “pick up” a woman without looking like they’re trying. Or trying to be cool without looking like they’re trying to be cool. Entire books and schools of dating advice have been built on this idea — pursuing a woman without actually letting her know that you’re interested in her.
+
+Just typing that paragraph feels exhausting. Talk about a lot of work for nothing.
+
+Like I described before, this performance-based stuff works sometimes, but it’s a short-term solution that requires a lot of time and effort. In my opinion, it’s a terrible investment of time and effort. You may as well invest that time and effort in yourself and let your identity and honesty do all of the attracting for you.
+
+After all, why learn how to fake being cool, when you can just learn to become cool yourself?
+
+On top of that, walking the tightrope of pursuing her without looking like you’re pursuing her requires a lot of attention and effort. You can slip up easily. It’s very unforgiving and ultimately, not a very enjoyable process. Besides, all of the attention and effort on “gaming” women this way ironically encourages you to be even more highly-invested and needy, therefore decreasing her likely attraction for you.
+
+Men avoid demonstrating an honest interest in a woman because they believe it will signify that they are too invested in her — i.e., it will show that they are needy. They think that when you say, “You’re cute and I wanted to meet you,” that translates roughly to, “Hi, I’m such a desperate loser that I’m just going to throw all of my desires out there right now and beg you to accept them.”
+
+But remember, it’s not the actual behaviors or words themselves, it’s the intentions behind those words. There’s a world of sub-communication going on behind a man’s honest declaration of his interest. And it’s an attractive one.
+
+Because when a man comes right out and says he’s interested in a woman, the sub-communication is actually, “I’m totally OK with the idea of you rejecting me, otherwise I would not be approaching you in this manner. Therefore, I'm comfortable with myself and my prospects.”
+
+Think about it, if a guy wasn’t comfortable with the prospect of a woman rejecting him, he wouldn’t have been honest in the first place. In fact, he would have pretended that he wasn’t actually interested in her!
+
+The fact that he honestly expressed to her his intentions, that he put his nuts on the chopping block and made himself vulnerable to her immediately, actually sub-communicates non-neediness and attractiveness in itself. And on top of that, it shows desire for her, which is going to trigger her arousal.
+
+Remember: what you actually say doesn’t matter; why you say it matters.
+
+Always. No exceptions. You can have the best line in the world, but if you’re saying it because you’re needy and desperate for validation and approval from women, then she is immediately going to sense it.
+
+This is why using pick up lines is ultimately a futile process. I could sell you the best 100 things I’ve ever said to women, but I can’t ever sell you my intentions or my confidence in myself. You must develop those on your own. And once you do, the actual lines you say will be personal and congruent to you and nobody else.
+
+### The Truth Is Always Shining Through
+
+This is because the truth is always shining through. You can’t fake vulnerability and you can’t fake honesty. By their very definition, it’s impossible.
+
+Men’s dating advice gives women very little credit when it comes to this. Women are generally quite intuitive to emotions, motivations, and social cues. We may think we’re clever when we come up with a cute line to approach a woman with, thinking that she has absolutely no idea that we’re secretly hitting on her. She does. They always do. And it’s not a big deal either.
+
+And not only does she know we’re hitting on her, the fact that we seemed so concerned about getting rejected turns her off. The fact that we had to contrive lines and fake stories in order to start a conversation with her, whether consciously or not, signals to her that we are highly invested and not a truly attractive man.
+
+You cannot fake non-neediness for more than a moment. The only women you will manage to fake are women who are drunk or who are extremely needy themselves. Truth.
+
+Non-needy and truly high-quality women who are not invested in the attention they receive from men are not going to have much patience for your lines and games. They will either see through them and see you for who you really are — scared to expose your vulnerability — or they will simply assume you’re not worth investing in because you’d rather just talk about spells or games or whatever.
+
+Vulnerability requires honesty, and honesty only works if it’s given unconditionally, with no strings attached. That means everything you say and do must be done without any ulterior motive. You are simply expressing your thoughts and feelings as they come to you, without inhibition, without shame.
+
+The truth is always shining through. Even if you lie about yourself or act a certain way, this is actually saying much more about you and your character than the content of your statements. Even if you are exaggerating or putting on a bit of an act to impress a person, your intentions will always shine through, eventually, and they will say more about you than any word ever could.
+
+If you pretend you don’t like a woman, ignore her, act like what she says is stupid or uninteresting, when in fact you do like her, and you are interested in what she says, subtle cues in your behavior and body language will slowly but surely tip you off. The armor will crack. It may be laughing too much at your own joke. Or tilting your head away at an awkward moment. Or making an awkward comment to her friend that feels forced. But people’s bullshit detectors will eventually go off, and you’ll be exposed for not presenting an honest expression of yourself.
+
+But what about men who gush about how beautiful a woman is to flatter her? What about the men who buy women drinks and beg them for dates and call them incessantly and tell them how they’re always thinking about them? Those guys are being honest about their intentions and their feelings, but they’re not getting anywhere, are they?
+
+Here’s the problem: human nature is such that we don’t trust people who like us if we don’t feel as though we earned it somehow. Imagine if some “stranger came up to you, started complimenting you incessantly, buying you things, how would you react?
+
+You’d probably think to yourself, “OK, what’s this guy selling?” Or maybe, if he was particularly pushy and weird, “Jesus, is this guy an ax murderer?”
+
+That’s because they’re showing how invested they are in your approval without them actually knowing you, without them taking the time to connect with you and understand you. And as a result, you don’t trust them. You find them creepy and weird.
+Welcome to every day of an attractive woman’s life.
+
+Men like this are broadcasting their neediness like a giant neon billboard coming out of their ass. They come up and gush to a woman about how amazing she is while they’ve only known her for 10 seconds. They buy her things with only knowing her for a few hours. What this man is signaling to her is, “I don’t know you, but I’m already going to do anything to win your approval, that’s how desperate I am.” And it comes across as pathetic.
+
+And even on a deeper level, what these men are sub-communicating is something else: “The only value I have to offer as a man is money and compliments. I have nothing else going for me.”
+
+__A man with an attractive and interesting lifestyle, a man with high standards for himself and the relationships in his life, will take the time to get to know an attractive woman before soliciting her with gifts. He will wait until he feels strongly enough to genuinely give her a compliment. And if he talks to her and discovers that there is little that is interesting about her beyond her looks, then he will lose interest.__
+
+Ironically, it’s these high standards and self-regard that women pick up on and find incredibly sexy. And it’s these same standards and self-regard that most men spend a lot of time trying to fake.
+
+When in doubt, check your intentions.
+
+Think about it: the average guy at the bar who goes around buying cute girls drinks — why is he buying them? So the girls will sit there and talk to him. 
+
+When he comments on how beautiful they are and how he’s so infatuated with them, why is he complimenting them? So that they’ll like him. When he pays for fancy dinners and offers to buy them jewelry, why is he doing it? So they’ll be impressed with him and not leave him.
+
+These are not gifts or compliments at all. These are deals he’s brokering. The terms may be implied or unspoken, but they’re transactions all the same. Everything he gives to her, he is giving with the expectation to receive something in return. The drinks are not unconditional. They’re bought with the provision that she stays and talks to him. The compliments are spoken with the provision that she shows him affection in return.
+
+And when the women don’t show appreciation or don’t reciprocate interest, he becomes furious, blaming the women for being gold-digging, lying whores and bitches. Again, being a “nice guy” is never much different than being a narcissist. One only gives. The other only takes. But both are the same in their desperation for approval.
+
+This is a subtle form of manipulation and, therefore, at its core, dishonest.
+
+Once again, most high value, confident women will see through this immediately and not hang around a man who does this. In fact, the only women who will go for a man like this are women who are superficial and willing to trade their affection for material and superficial gain — these women are soulless and suppress their emotions as much, if not more than the men who buy things for them.
+
+An attractive man expresses his interest unconditionally, expecting nothing in return. This arouses women and when they do reciprocate his interest, their interest is, in fact, a gift in return.
+
+True honesty is only possible when it is unconditional. The truth is only the truth when it is given as a gift — when nothing is expected in return. When I tell a girl that she is beautiful, I say it not expecting anything in return. Whether she rejects me or falls in love with me isn’t important in that moment. What’s important is that I’m expressing my feelings to her _in that moment_.
+
+I don’t use my compliments as a bargaining tool. I give them unconditionally. A needy man will give a woman a compliment without knowing her and wait expectantly for her to repay him in either her company or with thanks or with sexual favors. I will give compliments only when I am honestly inspired to give them, and usually after already meeting a woman and displaying to her that I’m willing to disagree with her, willing to be rejected by her and willing to walk away from her if it ever comes to that. This willingness to walk away from her and this ability to accept nothing in return is what gives my genuine interest so much value.
+
+When a compliment comes from a man seeking nothing in return, it’s a gift of truth, a piece of his vulnerability and infinitely more powerful as a result.
+
+And this honest compliment inspires women to become more highly invested in return. Paradoxically, seeking no investment from her will inspire her to invest that much more in you.
+
+Beautiful women are complimented on their looks often, and 99% of these compliments are given out of neediness, out of some idealization of who she is or what she can do for him.
+
+Beautiful women have been conditioned for most of their lives to know when a man is being genuine or not, whether the compliment is a gift or a bartering tool.
+
+And when it is a gift, when it is honest, she recognizes and appreciates a man who genuinely appreciates her. These men are rare.
+
+Women are people too (radical idea, I know). And as people, we all value those who genuinely value us, not expecting something in return.
+
+The biggest aphrodisiac in the world is someone who likes you, genuinely likes you. A woman’s desire is to be desired. But it has to be genuine desire. It can’t be a, “I’ll desire you as long as you “boost my ego and impress my co-workers,” kind of desire.
+
+The point is that genuine no-strings-attached appreciation is rare in this world, particularly from men. Women value this and invest themselves in the rare man who can demonstrate his vulnerability to her.
+
+Here’s the litmus test. Look at your actions and words around women and look at the intentions behind them. These intentions are always speaking ten times louder than your actual words. What are they saying?
+
+If you bought a girl a drink so that she wouldn’t leave to talk to someone else, what does that intention say about you? It says you were over-invested in her and behaving in a manner that was not attractive.
+
+If you told a girl a story in order to impress her and make her like you, what does that intention say about you? It says you were over-invested and behaving in a manner that was not attractive.
+
+If you invited a woman to a restaurant in order to impress her with how much money you had, what does that intention say about you? It says you were over-invested and behaving in a manner that was not attractive.
+
+A man who feels like he needs to buy or steal a woman’s attention or affection through entertainment, money or superficiality is a man who is not confident in his identity and who is not genuinely attractive.
+
+I should add that these aren’t all-or-nothing propositions either. Look, we all want people to like us, and we all like to impress others. We all need some validation sometimes. We all do these things to certain degrees. It’s impossible to be perfectly non-needy all the time.
+
+But neediness is relative. That’s why I say it’s about being less invested in others’ perceptions instead of NOT invested in others’ perceptions. It’s an important difference.
+
+I’m not advising to become a heartless sociopath. Quite the opposite, really. Because the more you invest in yourself, the freer you will become to care for others around you without looking for anything in response. A man who is needy and does not invest in himself is ultimately only capable of superficial interactions because his threshold for vulnerability is so low.
+
+It’s impossible to be completely devoid of investment in other people. That’s how we’re wired. But it is always possible to invest and care about yourself more.
+
+### Setting Boundaries
+
+But delivering honesty unconditionally isn’t just about compliments and appreciation. Unconditional honesty can be brutal and scathing at times as well. And strangely enough, brutal and angry honesty can turn a woman on just as much as the most genuine compliment.
+
+Again, it’s not about what’s being said, it’s about the intention and sub-communication behind it. 
+
+When you’re willing to cut a woman off and tell her when you feel that she’s out of line, when you’re willing to tell a woman what you will and will not tolerate in your life, this sub-communicates the most powerful elements of attraction to her. Far more powerful than an entertaining story or game.
+
+This is why it’s quite possible to piss a woman off and turn her on at the same time. Any man experienced with women will be familiar with this.
+
+If a beautiful woman says something that a needy man finds offensive, he’ll ignore it, change the topic, or withhold his true feelings. Hell, he might even pretend to go along with her for fear of making her upset.
+
+__But a non-needy man will tell her what she just said was offensive. Let the chips fall where they may. He won’t be an asshole about it. He will simply draw a line in the sand, “I don’t like stuff like that,” and she can choose to step across it or not.__
+
+Narcissistic men often misconstrue this as a free ticket to tell people they’re always wrong or to basically do what they want without paying attention to the feelings of others.
+
+That’s over-compensation and actually the behavior of someone who is over-invested and validated by the reactions of those around him.
+
+A non-needy man does not seek to impose himself on the boundaries of others, he’s merely interested in maintaining his own boundaries while respecting the boundaries of others.
+
+__Non-neediness means you respect yourself AND others. Narcissism means you only respect yourself. Neediness means you only respect others.__
+
+The difference is that if a woman says something offensive, a narcissistic man will berate her and try to get her to change her mind, whereas a non-needy man will simply make it clear that he found what she said offensive and will not tolerate it again. How she responds is her choice.
+
+If a woman insults a non-needy man’s friends, he will not hesitate to tell her to stop and stand up for those he cares about. If a woman says she needs to “leave a date after 30 minutes, he will not try to trick her into staying or beg her to come back, he will not yell at her or lecture her on manners. He will smile and say, “Nice meeting you,” and let it go.
+Hold your line. Don’t go around breaking somebody else’s.
+
+Most questions or problems men email me with, at their core, somehow involve a failure to maintain their boundaries. Whether it’s about a date, a woman not calling him back, a woman making fun of his job, or whatever, his perceived “problem” is simply him not stepping up and telling her what he’s willing to accept and not willing to accept in his relationships.
+
+Typically it has to do with something like the following: “She really liked me and gave me her number. She responds to my texts, but when I tried to get her out on a date, she made excuses. So then I texted her some more and she said she wanted to see me, but when she did show up for the second date, she was late and said she had to go early. She didn’t kiss me. Now I’m texting her and she’s texting back but won’t agree to go on a third date. What do I do?”
+
+Usually, men like this are obsessive about “the games women play” or how to deal with “tests” from women.
+
+My answer to these men is always the same: if you make it clear from the beginning that you are unwilling to put up with games, then not only will the women you attract stop playing games, but you’ll stop attracting women who do.
+
+In the example above, my plan of action? I would have said to her, “Let me know when you’d like to get together again. If you’re not interested, that’s fine too.”
+
+Yes, I will actually say this to her. Not in a harsh manner. But in a clear manner.
+
+I’ve said something similar to women probably 5-10 times. Without exception, they’re completely stunned. Often, they immediately apologize and say that they didn’t mean to be so flakey. Oddly enough, my honesty and complete willingness to be rejected (or to reject them) demonstrates my non-neediness and often it causes them to become more attracted to me.
+
+And a couple times, they’ve said, “You’re right. I don’t want to date you,” in so many words. And that’s OK. Yeah, it hurt to hear that. But a lot of shit in life hurts. Get over it. It’s for the better. She just saved us both a lot of time and effort.
+
+Your ability and willingness to establish boundaries is inversely proportional to how needy you are. Men who are needy and lack vulnerability will keep their boundaries loose and open, inviting manipulation into their lives and allowing people to walk over them. This is because they are more than willing to alter themselves in order to receive validation from the women they meet.
+
+Men who are non-needy establish strict boundaries because they value their own time and happiness more than receiving attention from a woman. They also see no reason to trample over other people’s boundaries.
+
+When it comes to making yourself more vulnerable, the first step is often to begin establishing your own boundaries. Learn how to say no to people, particularly women. Start having opinions on what you like and don’t like, what you’ll tolerate and won’t tolerate. Be honest with yourself, painfully honest. And then be painfully honest with her.
+
+The problem with forming strong boundaries is that in order to form them, you have to be particularly aware of your own desires and emotions. And many men who have been needy their entire lives are not very self-aware. They don’t know what they’re willing to stand up for and what they’re willing to let slide. They don’t know their own emotional motivations and desires.
+
+Men will often have to spend a lot of time seeking truth within themselves first before they’re able to express it to others.
+
+### Finding Your Truth
 
