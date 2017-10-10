@@ -477,8 +477,77 @@ The reality of incompatibility defines our entire strategy of dating women. To b
 
 # Chapter 4 : Polarization
 
+A lot of dating advice, particularly of the performance variety, tries to promise the ability to have sex with any girl you want, regardless of... well, pretty much anything. You could be a fat slob living in your mother’s basement, and with the right two or three lines, you too can date a lingerie model (as if there’s a lingerie model hanging out on every street corner).This is a fairy tale. And not only is it a fairy tale, it’s a fairy tale you don’t actually want to live. It feeds your neediness. __Rejection exists for a reason — it’s a means to keep people apart who are not good for each other.__
 
+Again, the men who are needy and have poor self-esteem are the ones who are willing to completely alter their personalities in order to seduce any woman. The first step to being more attractive is to see rejection as a means to eliminate women who won't make you happy from your life. It's a blessing, not a curse.
 
-Excerpt From: Mark Manson. “Models.” iBooks. 
+So let’s start at the beginning. There are an infinite number of women out there, and we can’t possibly meet or even know all of them. So our first task is to find a way to narrow them down and screen them in a way that we can manage our opportunities better.
 
-Excerpt From: Mark Manson. “Models.” iBooks. 
+### The Three Categories of Women
+
+For practical purposes, we can divide up all of the women you’re attracted to into three categories: Receptive, Neutral and Unreceptive.
+
+Women who are Unreceptive are just that: they’re unavailable and/or uninterested in having a sexual/romantic relationship with you. The most common reasons that put women in this category are the following:
+
+* You’re far needier than she is, and she’s therefore not attracted to you
+* She has a boyfriend/husband and is happy in her relationship.
+* There’s too much friction preventing her from being willing to date you, such as a difference in values, difference in interests, bad logistics, etc.
+* She’s not interested or looking for any man at the moment.
+
+__The way to tell if a woman is Unreceptive is if she repeatedly does not reciprocate your signs of interest and/or shows you signs of disinterest.__ If you invite her out for coffee and she keeps making excuses to why she can’t, then she’s Unreceptive. If you call her three times and she never calls back, then she is Unreceptive. If you chat her up and she explains that she is busy and wants to be alone, then she is Unreceptive. __If you hang out with her and she talks about how frustrated she is with her boyfriend and how you’re such a good listener, then she’s Unreceptive.__
+
+No exceptions. Many men waste a lot of time convincing themselves that Unreceptive women may actually like them. A good rule of thumb here is, “if you have to ask, then that’s your answer.” That is, there should be no ambiguity here. And if there is, you can quickly solve it by simply stating to her, “I think you’re cute/pretty/attractive/funny/whatever, want to grab coffee/dinner/a drink sometime?”
+
+Problem solved. You’ll find out where you are very quickly.
+
+But I’m getting ahead of myself…
+
+The next category is Neutral. This category can be difficult for men to understand because it’s not as common for us as it is for women. Typically, a man knows within a few seconds if he’s willing to meet and even sleep with a woman or not.
+Women aren’t like that. They spend a lot of time being unsure about a man and need to be swayed one way or the other.
+
+__Women in this category are usually women who you’ve just met or have only spent a little bit of time with. The important thing to know is that women do not ever stay in this category. They eventually polarize one way or the other. And if you never make an advance or show interest in them, then they will usually polarize towards being Unreceptive (this is the Friend Zone, which we’ll cover in a minute).__
+
+Neutral women are generally just that, neutral. They will not necessarily turn down your offers, but they won’t offer or reciprocate themselves. The jury’s still out. They’ll often tentatively say yes, although they won’t seem overly enthusiastic about it. They’re still testing the waters. Or sometimes, they just haven’t considered you in that way yet.
+
+The goal with Neutral women is to polarize them through your words and behaviors. This may mean flirting with them or teasing them. It may mean asking her on a date. It may be as simple as smiling at her from across the room. Whatever it is, the goal with Neutral women is to take an action that forces her to make a decision about how she feels about you. Which side she polarizes to is far less important than actually taking action. And remember, if you leave her to her neutrality, she will usually become Unreceptive and not see you as dating material.
+
+And in the final category, women who are Receptive are women who are sexually/romantically attracted to you. You can recognize women who are Receptive in two ways: 1) they initiate with you, and/or 2) they reciprocate your actions enthusiastically.
+
+Some examples of a woman initiating with you:
+
+* She makes strong eye contact with you and doesn’t break it.
+* She approaches you.
+* She touches you unprovoked.
+* She asks for your number or invites you out with her/her friends.
+* She asks you a lot of questions about yourself and seems genuinely interested in you.
+* She introduces you to her friends.
+* She gives you her number.
+* She comes up with some excuse/story/reason for you to hang out with her or spend time with her.
+
+Chances are if you’re reading this book, many of the girlfriends or sexual experiences you’ve had with women in the past only happened because she initiated with you.
+
+That’s fine. But just going about your life, unless you are extremely good-looking or have a great life style or you manage to meet women through good social contacts, few women are going to initiate with you and the few who do won’t initiate often.
+
+In fact, most women, especially very beautiful women, even if they’re attracted to you, won’t initiate with you. Remember, women tend to be less invested before sex, therefore, they (usually) expect men to initiate in the beginning. There are also strong cultural pressures on women to wait for the man to initiate.
+
+The other way women demonstrate that they’re Receptive is when they reciprocate. It’s important to recognize the subtle difference between a woman reciprocating your advances and a woman being neutral toward your advances. A woman who is Neutral will simply not respond at all. For instance, if you touch a Neutral woman on her back while you speak to her, she’ll just act like you’re not touching her.
+
+A woman who is reciprocating will do something to respond positively to your advance. Think of it as her signaling to you that she accepts your advancing on her and likes it. If you touched a woman on the back and she wanted to reciprocate, she would either lean back into you, lean in closer to you, or touch you in return.
+
+Here are some other common examples of reciprocation:
+
+* She ignores her friends to stay and talk to you.
+* She keeps very strong eye contact and laughs a little too much at everything you say.
+* When you touch her, she touches you in return.
+* When you put your arm around her, she leans into you.
+* When you take her hand to move somewhere, she holds it in return.
+* When you ask her out on a date, she offers a place to go or mentions something she’d like to do with you.
+
+Most interested women will reciprocate on small signals to show that they’re interested in you. Catching on to how women reciprocate and noticing the signals is something that you develop with experience, but it shouldn’t be too hard if you know what to pay attention to.
+
+A lot of the methods of flirting that we’ll cover in Part V will address the specific ways in which women reciprocate and how to handle them.
+
+Unfortunately, the vast majority of women you will meet, assuming you’re a typical guy, will be either Neutral or Unreceptive. This is true for the most of the male population, myself included, so don’t worry.
+The percentage of women that you meet in each category will vary widely from man to man and also vary widely depending on the context in which you meet women.
+
+### Strategies for Each Category
