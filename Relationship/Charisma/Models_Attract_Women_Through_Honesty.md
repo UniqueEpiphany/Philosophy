@@ -551,3 +551,82 @@ Unfortunately, the vast majority of women you will meet, assuming you’re a typ
 The percentage of women that you meet in each category will vary widely from man to man and also vary widely depending on the context in which you meet women.
 
 ### Strategies for Each Category
+
+Your course of action will differ depending on the type of woman you meet. Many men make the mistake of applying the wrong strategy to the wrong category of women. For instance, they’ll try to convince an Unreceptive woman to become Receptive. Or they’ll treat a woman who’s already Receptive as if she isn’t yet. Not only is this a time waster, it’s also ineffective.”
+
+The goal with Unreceptive women is to identify them and move on as quickly as possible. They’re time sinks. Typically, if women are Unreceptive, they’re Unreceptive for a good reason, and it has little to do with you (or maybe it does has everything to do with you, in which case you should learn from it).
+
+You’re almost never going to change the mind of an Unreceptive woman, and even when you do it’s often not worth the effort.
+I strongly believe in the idea of “Fuck Yes or No.” That is, I want women to say “Fuck Yes,” once they’ve gotten to know me. And if they aren’t enthusiastic and excited about being with me, then I’m not interested in them anymore. So Unreceptive women simply aren’t worth my time or effort to pursue. They could be great people and maybe I’ll be friends with them. But the minute they’re Unreceptive towards me, my interests have moved on.
+
+I’ll say this: in seven years, after meeting thousands of women, I can think of maybe five instances where a woman was flat out Unreceptive towards me and I “won her over.” If she shuts you down, tells you to go away, tells you she’s not interested, tells you she has a boyfriend, move on. Seriously, get over it and move on. You’re wasting your time. I don’t care how special you think she is, there’s another one out there who’s just as special who will be Receptive to you.
+The two most common time sinks with Unreceptive Women are the Friend Zone and women in relationships.
+
+The Friend Zone occurs when a woman has categorized you as a friend and not a potential lover. For women, these categories are almost always mutually exclusive. A man is either a friend, or a potential sexual partner, but rarely both. There are exceptions, but they are rare.
+
+Once inside of it, the Friend Zone is almost impossible to get out. And if you do ever get out, it’s likely not due to anything you tried or did anyway. Why? Because a man who does not act on his sexual desires is a man who is needy, lacks vulnerability and is therefore unattractive.
+
+The Friend Zone typically occurs when a man meets a Receptive or Neutral woman but never makes a move or expresses his interest. Instead, he behaves pleasantly, like a good friend would. In his mind, this is great because it means she likes talking to him, laughs at his jokes, etc. But because he’s withholding his sexual interest, he’s placing himself in her mind firmly in the “friend” camp.
+
+The Friend Zone is the biggest possible time sink because most men who are stuck in it entertain fantasies that they’re simply waiting for the inevitable to occur. It plays into their fantasies of romance and destiny. Their perspective is that they are the perfect man for her and one day when she wakes up and realizes how foolish she is, she’ll realize that the love of her life had been sitting right there by her side all along.
+
+This never happens. Ever. It’s an incredibly arrogant and manipulative mindset to adopt. It’s no wonder women see it as so unattractive.
+
+__If you are in this situation now, you need to get it out of your head and move on. Immediately. Typically, if men have been friends with a woman for even a month or two without ever explicitly indicating their sexual interest in her, it’s likely too late.__
+
+__You must indicate some sort of sexual interest early on. Otherwise, the longer you wait, the harder it gets and the more likely she will become Unreceptive to you.__ 
+
+The second time sink that men often get sucked into is a woman that is happily in a relationship. Unlike the Friend Zone where men will often waste away months or years, a woman in a relationship will usually only waste a few weeks, maybe a few months at the most. But still, a time sink is a time sink.
+
+A lot of men get hung up on women who are already taken, and rather than cut their losses and move on, they harbor some fantasy that any woman will cheat on her boyfriend/husband given the right circumstance. This isn’t true. And even in the cases that it is true, it’s also not worth the time or effort.
+
+Waiting around for a woman in a relationship is simply not worth it. Period. Trying to sabotage a woman’s relationship so you can swoop in and “steal” her is not only ineffectual but morally fucked up. It’s neediness and narcissism to an extreme degree.
+
+__What a lot of men don’t understand though is that oftentimes, married or taken women will still flirt with other men for no other reason than they think it’s fun and they like the attention. To some women, flirting is like a hobby and they see it as harmless fun. If a woman is married or has a boyfriend and seems pretty happy in general and is flirting with me, then I don’t take the flirting too seriously.__
+
+Men also struggle a lot with the rejection, “I have a boyfriend.” Some men seem to get obsessed about whether this is actually true or she’s just saying it to reject him.
+
+Once again, it’s not about whether her statement is factual or not. It’s about her intention. The intention is, “I’m not interested.”
+
+Take that at face value and move on. Even if she doesn’t have a boyfriend, there’s no point in trying to win over a girl who is willing to lie about something like that to you. And if she does have a boyfriend, then she’s probably happy with him, otherwise, she wouldn’t have brought it up.
+
+And that’s really the crux of the matter: women who have boyfriends/husbands who are willing to cheat on them, don’t bring up their boyfriends/husbands... almost ever. Typically, you’ll hear about them either immediately before or immediately after you hook up with them. If they tell you about them right when you meet them, then they’re not interested. If they tell you about their boyfriend while they’re making out with you in the cab back to your apartment, then she’s probably interested. But you don’t need me to tell you that.
+
+So your mission with Unreceptive women is to spot them as quickly as possible, and then politely move on. Rejection, in this case, is often your friend, as we’ll see later.
+
+It’s not until you find a woman who is Neutral or better that things begin to get interesting.
+
+The goal with Neutral Women is to get them to stop being Neutral as soon as possible. As we mentioned earlier, women who are Neutral and who stay Neutral tend to eventually end up Unreceptive. You do this by expressing your vulnerability and your identity to them freely.
+
+When you express your truth to women, you will polarize them — they will either become Receptive to you or they will make themselves Unreceptive. When you express your truth, if you express more investment than them, then they will be not be attracted to you and will therefore be Unreceptive. Also, if you express your truth and there is a high amount of friction between you and her that cannot be overcome, then she will become Unreceptive.
+
+If you express your truth and demonstrate not only that you’re non-needy but also frictionless for her (similar interests, values, life situation, etc.), then she will become very Receptive. And when I say very Receptive, I mean very.
+
+A big misconception men have is that they think they need to behave in a way that makes every single woman like them – as if women were all the same. This is counterproductive because by altering your behavior to fit whatever she wants, it means you are not being vulnerable and, therefore, you are being needy and unattractive.
+
+Other men often stick to plain jokes and safe topics of conversation that end up not polarizing at all for fear of being rejected. This is also a form of hiding one’s truth, not showing vulnerability, being over-invested and therefore not attractive.
+
+This is the plight of the highly needy “Nice Guy.” He’s afraid of eliciting an emotional response in anybody, especially women (and especially himself); therefore, he’ll play it safe and elicit Neutral reactions from woman after woman. And when women are Neutral for too long without being polarized, then they will make themselves Unreceptive.
+
+If there is one thing that narcissistic men accomplish well, it’s that they will polarize women quickly. Women will know more or less immediately if they’re interested in a narcissistic guy or not because he will be so overbearing and imposing she’ll have no choice other than to feel something for him.
+
+The problem with the narcissistic man is that the few women who become Receptive to him are not the type of women who are pleasant to be around (as they’re highly needy themselves).
+
+As you can see, Neutral women are where so-called “game” comes into play. Having good game means you can take a woman who is Neutral and incite her to become Receptive to you quickly. You do this by making yourself vulnerable, sharing yourself unabashedly, and polarizing her one way or the other and being comfortable with either result.
+
+Finally, we have the Receptive women. Finding these are the best because they are the most rewarding interactions while requiring the least amount of effort. When you meet a Receptive woman, the goal is simple. You escalate. You make a move. You move things forward — assuming you want to, of course.
+
+Receptive women who were originally Neutral, if you do not make a move and become physical with them quickly enough, they will often drift back to Neutral and then to Unreceptive permanently. But I’ve found that women who are Receptive to you to begin with will usually stay Receptive almost indefinitely. I think these are the only rare occasions when you can actually pry yourself out of the Friend Zone — these rare circumstances where she was always Receptive to you, but for whatever reason, you two weren’t able to be together (you had a girlfriend, she moved away for three years, etc.).
+
+__The percentage of women who are Receptive to you will increase proportionally to the quality of your lifestyle, your social status, and your looks. The percentage of women that you’re able to move from Neutral to Receptive will be proportional to how good your “game” is, or how well you’re able to communicate and express yourself with women. And your ability to sort through each type of women and meet as many as possible will be determined by how fearless and bold you are when it comes to meeting women.__
+
+While most pick up advice obsesses over the avoidance of rejection, rejection plays an integral part in my strategy. It’s unavoidable, so I figure we may as well develop a strategy that uses it to help us. Rejection exists for a reason. If you are a professor at a prestigious university, then you’re probably not going to enjoy your time with a high school dropout with an alcohol problem. Just because she has a nice ass doesn’t mean you want to be with her.
+
+Polarizing women into rejecting us — and when I say us, I mean the real us, the vulnerable and unabashed us — does us a favor by sorting out which women are going to make us happy.
+
+Men often want to have it both ways — they want to be able to avoid painful rejections, avoid saying something stupid, avoid embarrassing themselves, while at the same time being this attractive, amazing guy who women fall to their knees for.
+You can’t have it both ways.
+
+The two go together. You cannot be an attractive and life-changing presence to some women without being a joke or an embarrassment to others. You simply can’t. You have to be controversial. You have to polarize. It’s the name of the game. And getting good at the game is learning to open yourself up enough emotionally, learning to express your honest self enough and be comfortable enough with your vulnerability to take those embarrassing moments along with the moments of passion. A willingness to polarize is not easy. But it’s necessary. It’s why you’re here right now.
+
+### Polarizing to Attract
