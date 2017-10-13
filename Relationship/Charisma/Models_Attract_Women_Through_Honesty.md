@@ -630,3 +630,87 @@ You can’t have it both ways.
 The two go together. You cannot be an attractive and life-changing presence to some women without being a joke or an embarrassment to others. You simply can’t. You have to be controversial. You have to polarize. It’s the name of the game. And getting good at the game is learning to open yourself up enough emotionally, learning to express your honest self enough and be comfortable enough with your vulnerability to take those embarrassing moments along with the moments of passion. A willingness to polarize is not easy. But it’s necessary. It’s why you’re here right now.
 
 ### Polarizing to Attract
+
+Our primary strategy with women is polarization. The idea is that the more forthright you are about who you are, how you feel, and what you think, the more this is going to weed out Unreceptive Women from the Receptive women, as well as push Neutral women to get off the fence and decide how they feel about you.
+
+The amazing thing about polarization is that the simple act of doing it demonstrates non-neediness and will then inspire more Neutral women to become Receptive than other strategies or tactics.
+
+Like I mentioned earlier, the most common strategy by men who are inexperienced with women is “to be liked by all, hated by none.” But when it comes to being intimate and attracting women, this is a horrible strategy. Being hated by nobody usually means you’re not loved by anybody either.
+
+The men who employ this strategy employ it because they’re trying to avoid confrontation and controversy. Many of these men have been avoiding confrontation and controversy their entire lives. It’s part of their fear of vulnerability.
+
+The fact is that sexuality, attraction, and relationships are, by their very nature, confrontational and controversial. You have to either make the decision to accept being controversial and confrontational or you need to accept that you will go through life with everyone being Neutral towards you.
+
+Polarization is what occurs when you express your truth and make yourself vulnerable. When you tell a woman she is beautiful, you are polarizing her. When you tease her about her earrings and put your arm around her, you’re polarizing her. When you wear a custom-made suit when you go out, you are polarizing women. When you tell a woman who’s late to a date to never be late again, you are polarizing her. When you smile and tell her how beautiful she is, you’re polarizing her. When you take her hand in yours and lead her somewhere, you are polarizing her.
+
+Everything that is attractive is polarizing.
+
+These are never wrong moves, assuming that they are honest expressions of yourself and you are showing your vulnerability.
+A man who is highly invested is going to alter his behaviors based on the woman he’s talking to. He’s going to be afraid to tell her that he doesn’t accept her being late. He’s going to be afraid to wear that suit out. He’s going to be timid when he wants to put his arm around her. He’s going to be unable to make himself vulnerable, express his truth, and will therefore not polarize her.
+
+A man who is uninhibited about expressing his emotions and what he wants will demonstrate non-neediness, thereby attracting a woman and immediately forcing her to decide whether she’s Receptive or Unreceptive. And chances are, unless there’s a lot of friction present, she will become Receptive. You’d be surprised how many women will respond with attraction to nothing other than a man who is bold and willing to stick his neck out.
+
+A lot of men assume that this means you are inviting a mountain of rejection onto you. The surprising thing is this is rarely the case. Yes, you will get rejected when you polarize women. And yes, every once in a while it will be a harsh rejection.
+
+But surprisingly, a lot of women will react warmly to these advances, even if they’re not interested and reject you. They respect a man who is bold and honest. I’ve had tons occasions where I approached women boldly and honestly, stating directly that they were beautiful and I wanted to meet them, and despite rejecting me, they were so impressed by my boldness and confidence that they promptly introduced me to a friend of theirs who was available.
+
+I’ve often been thanked by the women who I’ve unsuccessfully hit on, not because I did it, but for the way I did it. And even when things go nowhere, women at least respect me and the fact that I bluntly state what I feel.
+
+Most of the harsh rejections I’ve had in my life came from when I was performing, seeking validation, when I was over-invested and needy and overcompensating. When I pursue women in a vulnerable way, almost every woman at the very least will respect my advances, even if she’s not interested.
+
+In my experience, the more polarizing a man is, the more they are flooded with opportunities with women. This is true for every man I know who is incredibly successful with meeting and dating women.
+
+The biggest mental hurdle for many men is the ability to handle rejection. A lot of men have had it ingrained into them all of their lives — and even by other dating advice — that rejection is terrible and should be avoided at all costs. They buy into some myth that there are magical lady’s men out there that don’t get rejected, ever.
+And as we’ll see, this is not true.
+
+# Chapter 5 Rejection and Success
+
+Business guru Dan Kennedy once said, “Your ability to deal with the failure will determine how much you get to deal with success.”
+
+As with any type of failure, it’s not until you’ve been rejected a certain amount that you realize how insignificant it actually is, how you spent so much time worrying about nothing, and how you’re free to act however you choose.
+
+### “It’s Usually Not About You”
+
+This is why we pursue women based on our truth. This is why we polarize women as soon as possible. This is why we approach women looking to see if she fits our values and needs and not the other way around.
+
+Most men, when they meet women, are thinking something like, “I hope she likes me,” or “I hope she doesn’t embarrass me or reject me.” It’s all about them. And therefore, when things don’t go anywhere, the men take it personally — they get upset or angry or butt-hurt that this random stranger with breasts isn’t laughing at their lame joke right now.
+
+Instead of thinking, “I hope she doesn’t reject me,” think, “I hope I'll find out if she’s right for me.”
+
+The beauty is that whether she falls in love with you on the spot or she throws a drink in your face… you’ve succeeded. You’ve found out the truth. Your curiosity is fulfilled and you can now decide whether you should move on or not.
+
+I see every rejection simply as some form of incompatibility. Whether she thinks I’m a total creep, or she’s crazy about me but we live on different continents, or she’s in a horrible mood when I ask her out, or she thinks I’m cute but has different values and interests than me — whatever the reason, if a woman ever rejects me, it’s because she’s not compatible with me. It may be a permanent incompatibility. It may be a temporary incompatibility. But the point is that if she liked me enough, she’d be willing to work at making it happen with me. And if she doesn’t, then that just means it’s wrong person — or right person, wrong time. And that’s fine.
+
+Remember, it’s “Fuck Yes!” or no. And if I’m not getting a “Fuck Yes!” then I’d much rather have a no than a “Meh, OK.”
+
+### Redefining Success
+
+I define success in a qualitative way: maximizing happiness with whichever woman/women I prefer to be with.
+
+```
+Success = Maximizing happiness with whichever woman/women we prefer
+```
+
+When we define success as finding the relationship(s) that will maximize our happiness, our approach takes a completely new light. Instead of waiting and hoping for a woman to select us, instead of racking up numbers, instead of winning bragging rights, instead of avoiding rejections — our success is defined by screening through as many women as possible until we find the ones we enjoy and the ones who enjoy us.
+
+We screen through these women by polarizing them. We are polarizing them by sharing our truth with them openly and freely. And when we do this, women will either become incredibly attracted to us or they will reject us. Either way, we’ll be the happier for it.
+
+So it’s time to get into the nitty-gritty. So far we’ve spent most of the book being introspective and talking about our emotional lives. Whether we get any specific woman or not depends on our level of investment relative to our investment in ourselves. This is non-neediness. We build non-neediness through vulnerability. We practice vulnerability by being honest.
+
+There are three ways in which we are honest. And those three ways will make up the bulk of this book. The three ways are 1) living based on our values (lifestyle); 2) becoming comfortable with our intentions (boldness); and 3) by expressing our sexuality freely (communication).
+
+The first way of expressing our truth involves developing a lifestyle that makes us happy. The second way of expressing truth is by being courageous and fighting through our fears and anxieties. And the third way of expressing truth is by communicating well and being uninhibited in our sexuality.
+
+Choosing to not live a lifestyle based on our values and interests is only being dishonest with ourselves. It reflects a higher investment in others than in oneself. Therefore, it is unattractive.
+
+Not acting on our desires and asserting ourselves where appropriate is showing more investment in others than ourselves. It is therefore unattractive.
+
+And not communicating our thoughts, feelings, and desires freely and clearly also demonstrates more investment in others than in ourselves. This is also unattractive.
+
+Lifestyle, Courage, and Communication: I refer to these as the Three Fundamentals.
+
+# Chapter 6 The Three Fundamentals
+
+
+
+
