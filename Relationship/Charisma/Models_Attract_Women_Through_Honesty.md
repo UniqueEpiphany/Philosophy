@@ -711,6 +711,41 @@ Lifestyle, Courage, and Communication: I refer to these as the Three Fundamental
 
 # Chapter 6 The Three Fundamentals
 
+The Three Fundamentals are the three ways in which a man can become more vulnerable and become less needy. Improving each one of the Three Fundamentals will improve your results, sometimes drastically. Each of the Three Fundamentals can be worked on independently, but as we’ll see later, improving one of the three often indirectly benefits the other two and vice-versa.
+The Three Fundamentals are:
 
+1. Creating an attractive and enriching lifestyle.  
+2. Overcoming your fears and anxiety around socializing, intimacy and sexuality.  
+3. Mastering the expression of your emotions and communicating fluidly.  
+
+The way to improve each of these fundamentals is by drilling deeper into your vulnerability for each one of them. So one way to think about it is that the fundamentals are the categories in which you can improve your results with women (and general well-being), and expressing your vulnerability and seeking truth is the process in which you improve in the categories.
+
+__For short, I refer to the Three Fundamentals as Honest Living, Honest Action, and Honest Communication.__
+
+For instance, Honest Living, or creating an attractive lifestyle involves really drilling down and understanding what you want as a man for your life and then working to make that a reality. If you’re in a job you hate with hobbies you hate and friends you don’t like, then no matter what you do or how much money you make, you’re going to have a hard time meeting attractive women that you enjoy and who enjoy being with you. This is because the identity you have adopted does not accurately reflect your emotional needs and desires. You are not living your life honestly, which means you are not investing in yourself, which means you are needy and unattractive.
+
+If your true passion is art and you push paper around at an insurance firm, then you’re not living honestly. You’ve compromised your identity in some way to fit what others have dictated it should be; in this case, you’ve given up what actually makes you happy in order to fit the values or roles of other people in society (having a stable job, working in the corporate world, having a nice house/car, etc.). This displays a lack of vulnerability and neediness.
+
+If those things aren’t actually important to you, then you have a responsibility to yourself to change. Otherwise, you’re always going to be an unattractive man. How so? Because you’re living 40 hours a week, every week, investing your identity in what others want out of you and not what you want of yourself. This is like baseline neediness, and until you straighten this out, you will be needy with every woman you meet, preventing you from meeting the truly amazing women that you could potentially be with one day.
+
+Honest Living correlates directly with the quality of women that you will attract. The more in-tune you are to your lifestyle, the more you take care of your appearance and your health, the higher the quality of women you will attract and the greater percentage of Receptive women you’ll meet.
+
+Honest Action is overcoming your fear and anxiety around women. Our anxiety is another form in which we highly invest ourselves in others’ perceptions and avoid our truth. Like a poor lifestyle, it also seems to be embedded in us and it’s something that requires a lot of thought and effort to repair over a longer period of time.
+
+I call it Honest Action because it is honesty in the strictest terms. If you see a beautiful woman and have a desire to meet her, to not take action and meet her is a form of being dishonest with yourself. If you’re standing in a bar, and you see a woman who catches your interest, and you keep looking at her all night because you’re afraid to do something, on a deep level, you’re being dishonest about your intentions and sexuality. You’re being overly invested in her and others’ opinions and are unable to expose your vulnerability.
+
+All fear around your sexuality is a result of feeling inferior or unworthy. If you’re afraid to approach a woman, it’s because somewhere inside you are more invested in her opinion of you than you are in your own opinion of yourself. If you’re afraid to ask a woman to come home with you, it’s because you are afraid of the sexual reality that you want to sleep with her — you’re more invested in her not rejecting you than you are in aligning yourself with your desires.
+
+Overcoming your fear and anxiety will correlate with your overall results with women. The reason being that once a man overcomes his fear of rejection, he’s willing to more or less pursue any woman he wants when he wants. Even if he’s a deadbeat (lacks a good lifestyle) or even if he’s terrible at expressing himself (lacks good communication skills), he will eventually meet women who want to date him and sleep with him by no other means than pure numbers. If he’s willing to approach 500 women with no fear of rejection, eventually at least one of them is going to stick.
+
+Honest Action correlates directly to the quantity of women you meet and attract.
+
+The third fundamental is Honest Communication, or learning to express yourself freely and effectively. This is what most dating advice sells and classifies as “game” — a good sense of humor, the ability to connect with people, telling stories, engaging people’s attention, having charisma, and expressing your sexuality openly. These are all parts of this fundamental.
+
+I call it Honest Communication because it’s learning how to communicate your true intentions and emotions to others clearly. Often we have certain thoughts or feelings, but we don’t know the best way to convey those thoughts or feelings. This third fundamental focuses on how to do that.
+
+Honest Communication will determine the efficiency with which you are able to attract women who are compatible to you. A man who communicates poorly or is unable to express himself clearly will lose a lot of romantic opportunities to “lost in translation” situations — misunderstandings, vague communications, inaccurate assumptions, etc.
+
+### Natural Advantages/Disadvantages
 
 
