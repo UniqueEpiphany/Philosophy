@@ -748,4 +748,33 @@ Honest Communication will determine the efficiency with which you are able to at
 
 ### Natural Advantages/Disadvantages
 
+Chances are, you’re already pretty strong in one or more of the Three Fundamentals and weak or mediocre at one or more of them. Where your strengths and weaknesses lie will determine not just the quantity of your results with women, but also the types of outcomes you achieve.
+
+For instance, a man with an amazing lifestyle but poor action and poor communication will be surrounded by beautiful and interesting women but never be with them. Classic examples of this are rich or good-looking men who are still single and frustrated. They may have money, connections, power and meet beautiful women regularly (or have beautiful women approach them), but they’re never able to capitalize on their opportunities.
+
+A man with no fear or anxiety with women will be able to approach and ask out many women, but his effort-to-reward ratio will be poor and the quality of women will be worse. Often a lot of aspiring players fall into this category — they go out 5-6 nights per week, approach dozens of women, fail with almost all of them, but every once in a while convince a drunk sloppy girl to come home with them.
+
+A man with great communication skills but a lot of fear and a poor lifestyle will rarely meet or attract beautiful women, but the few times he does, he will capitalize on his few opportunities. Most so-called “normal” guys are like this. They rarely see opportunities, but when they come along, they take them and do well. The problem with these men is that they never feel like they’re in control of their love lives. They’re always waiting for that next woman who’s interested to come around. And sometimes they end up waiting quite a while.
+
+The Three Fundamentals are interesting in that they explain why a lot of men implement a lot of dating advice or self-improvement and don’t see any actual change in results. If your weakness is that you aren’t able to communicate coherently or empathize with what other people are expressing, then being encouraged to approach 500 new women is going to be an absolute disaster.
+
+If you are broke, live with your parents, and have no job, then being encouraged to spend all of your time and money out in nightclubs is only going to get you a bunch of meaningless sex with mediocre drunk girls who have no better options.
+If you are scared to death of saying anything to a woman you find attractive, then the best conversation tricks, teasing and flirting lines, or even openers are not going to help you at all.
+
+But as I said earlier, the Three Fundamentals are interdependent — they feed off of one another. So if your biggest problem is an inability to communicate well, then meeting 100 new women won’t directly benefit you, but the fact that you’re talking to 100 new people will indirectly help your issue. In the same way, being able to communicate effectively will help guys with extreme levels of anxiety in their development because the few times they do work up the nerve to make a move on women, they will usually do it in a smooth and socially-attuned way.
+
+# Part III: Honest Living
+
+# Chapter 7 Demographics
+
+This question of where and in what context you meet women is what I call demographics, and it is by-and-large ignored by pretty much all dating advice out there today. This absolutely boggles my mind since social interactions are always contextual, and therefore, attracting women is always contextual.
+
+The theory of demographics is simple and easy to remember: like attracts like. You attract what you are.
+If you’re a successful professional who likes fine wine, studied abroad and dresses well, chances are the type of women you’re going to naturally meet and attract in your everyday life are going to be similarly educated, similar looking women with similar interests and similar success.
+
+When demographics don’t match up, then it causes friction. And as we learned in Chapter 3, friction prevents attraction from turning into intimacy and/or sex.
+
+### Lifestyle Choices
+
+
 
