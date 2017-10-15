@@ -776,5 +776,104 @@ When demographics don’t match up, then it causes friction. And as we learned i
 
 ### Lifestyle Choices
 
+The theory of demographics has advantages as well: if you play to your strengths — i.e., if you focus your time and energy on meeting women in situations where they are likely to share your values, interests, and needs — then you’re going to not only experience a much higher degree of success, but you’re going to meet women you enjoy a lot more.
+
+What I recommend to every man before he even begins talking to women is to sit down for a while and ask himself a few questions:
+
+What do you value in a woman? Honesty? Beauty? Affection? Intelligence? Curiosity? Similar interests? Education? Obviously, the answer is “all of the above”, right? So let me rephrase the question: what do you value the most? What is an absolute deal-breaker in the women you date? Prioritize what you look for in a woman. This will help you decide where to look.
+
+* What do you value in a woman? Honesty? Beauty? Affection? Intelligence? Curiosity? Similar interests? Education? Obviously, the answer is “all of the above”, right? So let me rephrase the question: what do you value the most? What is an absolute deal-breaker in the women you date? Prioritize what you look for in a woman. This will help you decide where to look.   
+* Women with the traits that you value, where do they frequent? Where are you most likely to find them?  
+* What do you enjoy doing most? Do you love to read/write? Do you play music? Do you enjoy sports and competitions? What are the events or organizations that you can become involved in that explore your hobbies?   
+* If you don’t know what your passions and interests are, take a minute and write down things that you’ve always wanted to do but have never had the time or never worked up the nerve to do. Make a promise to yourself to get involved in that activity or event in some way.   
+
+Demographics affect every interaction you have with women. If there is too large of a demographic mismatch, then the friction will be incredibly high, and no matter how attractive you are, she will not be able to connect with you.
+
+### Beliefs and Self-Selection
+
+Lifestyle choices play an obvious role in the demographic of women we would like to meet. If you like to do yoga, and if you go do yoga, you’ll meet other women who like to do yoga. They’ll likely be attracted to you and you’ll likely be attracted to them. Duh.  
+
+What’s not quite as obvious but just as important, if not more important, is how our beliefs naturally screen the women who come into our lives. When I say beliefs, I mean beliefs about women, sex, relationships, and ourselves.
+
+The idea is that our beliefs are reflected in our behavior, and behavior determines which (and how many) women are attracted to us.
+
+For instance, if you believe all women are sluts and untrustworthy, then the only women who are going to be willing to tolerate your judgmental attitude are promiscuous women who are untrustworthy. Social psychology refers to this as the assortment effect and it's been demonstrated in many studies.
+
+Another example is the belief that women want and enjoy sex as much as men do. This belief was a big one for me. Many men don’t believe that women actually enjoy or fantasize about sex.
+
+So how would this belief affect your behavior and screen the women who are attracted to you?
+
+If you believe women don’t or shouldn’t enjoy sex, then the women who do enjoy sex will most likely not feel comfortable expressing their sexuality around you. And the women who do not enjoy sex will feel like you understand them.
+
+Thus, you’ll be stuck dating a bunch of women disconnected from their sexuality and uncomfortable having sex with you.
+
+But if you believe that women do enjoy sex, then the women who do enjoy sex will feel comfortable expressing their sexuality around you, while the women who are not comfortable expressing their sexuality will not be comfortable around you. Yes, this will invite rejections, but remember, rejections are a form of screening for demographics and in this case, it’s doing you a favor.
+
+You’ll end up with a bunch of sexual and sensual women who enjoy being with you. Nothing wrong with that!
+
+The assortment effect through personal beliefs is incredibly powerful. I think that most “problems” men try to overcome with tactics and techniques could easily be solved by simply questioning our beliefs.
+
+I always like to tell men, “The only thing all of the women you date have in common is you.” What I mean by that is if all of the women you date end up lying and being manipulative, or if all of the women you date are selfish and treat you poorly, or if all of the women you date are meek and have no personality, then likely there is something in your beliefs and behavior that is naturally screening for those types of women.
+
+A blunter way of putting it is: whether you realize it or not, the results you get with women are always your fault.
+
+Becoming a non-needy man requires, first and foremost, a high level of honesty with yourself. Part of that honesty with yourself involves observing and challenging your own beliefs. If you have lived your entire life believing women are untrustworthy or that women who express their sexuality are immoral, then perhaps you should evaluate what kind of women those beliefs are going to attract into your life. And if you don’t want to attract those kinds of women, perhaps you should experiment with changing your beliefs.
+
+The same is true with women and dating. If you meet and date women believing fucked up stuff about them, you will only encourage that fucked up behavior. If you never trust the woman you’re with and are always jealous, then you’re just going to encourage her to do things behind your back. After all, she’s going to get yelled at by you anyway, so she decides to start withholding information.
+
+If you’re condescending and treat a woman like she’s a child who can’t make any decisions for herself, then she will act like a spoiled child and stop making any decisions for herself.
+In the therapeutic world, this is often referred to as “enabling:” when our shitty behavior encourages the people around us to adopt shitty behavior.
+
+### Age, Money, and Looks
+
+The touchiest part of demographics — and possibly the touchiest subject of all dating advice — is that of age, money, and looks.
+
+I want to get this out of the way and make it 100% clear. Age, money, and looks matter — in some cases a lot, in other cases, not a lot, but they still matter. And anyone who tells you that they don’t matter is lying.
+
+With that said, age, money, and looks don’t matter nearly as much as most men think. And if you’re aware of the effects of demographics, you can work around them and even work them to your advantage.
+
+When it comes to age, studies show that men’s physical attractiveness peaks at around 31 (a luxury considering women peak around 21) and that our physical attractiveness recedes far slower than it does for women. In fact, studies have found that the average 45-year-old male is still considered as physically attractive as the average 18-year-old male.
+
+The main reason is that studies have also found that women judge a man’s status far less on actual physical dimensions and far more on style, grooming, and how men present themselves. As men, we’re extremely lucky in this regard. Taking a man from a baggy beer T-shirt and ill-fitted jeans to a nice suit with a professional haircut will immediately bump him up 50% in the looks department overnight, whereas with women, it’s a constant and never-ending battle to maximize their physical appearance as much as possible.
+
+Money is nice in that it demonstrates success and implies other positive attractive traits. But again, its utility is vastly overblown. When it comes to money, once again the surveys and studies have some interesting findings.
+
+The first is that money/success matters more depending on your age. The older you are, the more money you’re expected to have and the more successful you’re expected to be in order to be attractive. The other finding is that the less wealthy she is, the more important money will be to her.
+
+This is why the stereotypical gold-digger is usually a very beautiful young woman who grew up in poverty. Women who grow up with money or have money usually don’t care about it as much.
+
+But the fact remains that women perceive men with money the same way we perceive women with good looks: as social status. How each woman defines social status and whether money is a part of that or not is going to vary from woman to woman.
+Which brings me to my primary point when it comes to age, money, and looks. Again, it’s about the demographics.
+
+I saw a quote recently that said, “Only lazy women are interested in men with money, because they don’t have anything else going for them.
+
+Ask yourself for which demographic of women are looks and money highly important? Women who tend to only value good looks tend to be women who only have good looks and little else to offer. Women who are highly interested in money are going to be women who don’t have other interests or opportunities in front of them.
+
+What I’m saying is, women who only care about things such as looks and money are usually going to be women who you’re not going to be interested in or who are not going to make you happy. So you’re not missing out on much.
+
+With that said, everybody values looks and success to a certain extent. So it’s not something we can write off completely. You should be as good-looking as you can possibly be. And you should be as financially successful as you can possibly be. And even the most interesting and well-rounded and psychologically healthy women are still going to prefer a good-looking and successful man to one who isn’t. All things equal, looks and money always increase your odds.
+
+But I would just add the caveat that you should be as good-looking as possible for you. You should be as financially successful as possible for you. These are just other avenues in which to invest in yourself.
+
+So yes, looks and money matter. But the question is, how do they affect our results with the majority of women?
+
+__The more money/looks/success you have, the less attractive behavior you need. The less money/looks/success you have, the more attractive behavior you need.__
+
+Another way to think of this is that age, money, and looks are universal demographics, and therefore, an incompatibility in any one of them is apt to cause extra friction everywhere.
+
+But just because there’s friction, or just because there are fewer Receptive women, it’s no excuse for not having success in the long run.
+
+The vast majority of men who get hung up on looks and money get hung up on them because they’re using it as an excuse. It’s absolutely not a valid excuse. A guy who is good-looking or rich still has to work for his results; he just doesn’t have to work as hard as the next guy.
+
+It’s all relative. The key is to 1) recognize your personal interests and strengths, and 2) build upon those personal interests and strengths to quickly attract women in your preferred demographic.
+
+### Social Proof
+
+
+
+
+
+
+
 
 
