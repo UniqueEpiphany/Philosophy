@@ -920,6 +920,86 @@ So listen up and make a serious commitment to yourself, because if you don’t m
 
 ### Fashion and Fitness
 
+There are a few rules to dressing well:
+
+1. Wear clothes that fit.  
+2. Wear clothes that match.  
+3. Dress to your personality.  
+
+### Body Language
+
+Body language is something that can also be fixed in a relatively short amount of time and can immediately make you appear more attractive.
+
+Some studies claim that body language accounts for as much of 60% of all communication that occurs between two people. That’s a lot.
+
+Major body language problems can be addressed consciously and with practice. But your body language will continue to improve as a side effect of becoming less needy and getting plenty of exercise.
+
+Go step-by-step if you must. As you walk down the street, remember: shoulders back, chin up, eyes straight, feet straight, shoulders swagger, arms swing. Always look straight ahead. Don’t ever look down at the ground unless you think you’re about to trip. Look people in the eye as they walk by — particularly attractive girls. You’ll catch people making eye contact with you. You’ll feel the urge to look away. Don’t. __Always make other people break eye contact with you before you break it with them.__ Do it until it becomes a habit.
+
+### Vocal Tonality
+
+Vocal tonality is definitely overlooked by men. It’s not just having a sexy voice that’s important; it’s having an expressive and a loud voice.
+
+We actually have two “voices”: a “head” voice and a “chest” voice. Basically, when you sing, your head voice does the high notes and the chest voice does the low ones. Your head voice breathes out largely through your nose while your chest voice through your mouth. The head voice comes from the throat and the chest voice from the diaphragm.
+
+As you could guess, we want to develop that chest voice. Again, the only way to do this is through conscious practice — reminding yourself countless times to speak from your chest voice until it becomes a habit.
+
+Another problem men have is they often talk too quickly. This comes from a subconscious belief that if we don’t get everything out quickly, people won’t listen to everything we have to say. This is a needy behavior.
+
+Not only do better body language and vocal projection engage other people more effectively, but good body language has also been shown to affect your moods positively. Yes, even shifting your body into a more confident position consciously will make you feel more confident and vice-versa. Even if you do it on purpose and know what you’re doing, it will still work. So start paying attention to your body, how you present yourself, how you sit, how you stand, and the amount of eye contact you’re making. It makes a difference. And it adds up quickly.
+
+### Developing Character
+
+One thing that consistently holds men back is that they come across as just another typical dude or bro. Dime a dozen. We’re pressured most of our lives to go with the flow, go along with what our friends like and just agree with what those around us think.
+
+As we’ve discussed, this is unattractive behavior because it demonstrates a lack of investment in your own interests, passions, and desires. __Attractive men are polarizing and uninhibited. Attractive men make their opinions known. They’ve had unique experiences and ideas. They’ve tried things many people haven’t tried, done things many people haven’t done, and share their ideas openly and freely.__
+
+__Put another way, an attractive man with depth and character is a man who has opinions and openly expresses those opinions.__
+
+When it comes to deciding what one likes and doesn’t like, most men have very lukewarm reactions one way or the other.
+“Yeah, that movie’s awesome,” or “Yeah, I like that one,” or “No, I don’t like that show.” It rarely goes beyond that. There’s no sharing of why one prefers one type of music over another, one movie over another, one author over another. And there’s no connection to the emotions driving that preference.
+
+Few men ever stop and actually think critically about why they like certain things, why certain forms of pop culture are popular and others are not. Few have the curiosity to look into new art forms or hobbies and figure out how they feel about them.
+
+Here are some concepts to keep in mind as you go through your life experiencing art and media:  
+
+1. Assume everything has a form of value; it’s your job to find it.
+Nothing is stupider than to be prejudiced against a genre of music or type of movie for no other reason than because of some stereotype or preconceived notion about it.
+
+Drop all of this prejudice and adopt this mentality immediately: “there has to be something to this form of art, otherwise it wouldn’t have a following, so I should find out what that something is.” Once you find it, then decide if you like it or not. Whether you like something or not, you should always be able to appreciate it.
+
+2. When expanding your horizons; start with what’s generally considered the best.
+
+I’ll make the following points:  
+
+1. Being a well-rounded individual with opinions will expand your demographics by quite a bit. So yes, none of this is necessary if you want to date a woman who has no interesting opinions herself. But if you want to date brilliant, vivacious women with artistic sensibility, passion and class, then a lot of this is a prerequisite.
+
+2. The second point I’ll make is what my high school literature teacher always told us: “You read literature because you can never meet enough people.” What I take from this is yes, even though reading Hemingway or Milton Friedman’s economic theories may not directly get you laid, what it will do is develop your perspective to be more varied, allow you to be able to relate to more people’s experiences and ideas, and generally have a wider body of knowledge for dealing with people in general.
+
+Ask yourself this: If you were lined up next to 10 random, single men from your town, what would make you stand out from them? Imagine a woman met all 10 of you in a row. What is there about you that would stop her dead in her tracks and make her say, "Wow, this man is unique?" What do you have that they don’t? What can you offer that most other men can’t?
+
+### Bringing It All Together
+
+Developing an attractive lifestyle is a long-term process. It requires a consistent and penetrating look at your actions, your habits and what you’ve chosen to do with most of your time.
+
+Your job, your hobbies, your friends, your interests, are these things mostly a result of what was told to you or pushed on you, or are they things that you consciously evaluated and chose based on how enriching and passionate they made you feel?
+These are important questions. No one can live your life but you. And as long as you sleepwalk through life not ever questioning or evaluating the lifestyle you’ve built for yourself, the same behavioral patterns are likely to creep up over and over again.
+
+Men often don’t totally believe me, but poor lifestyle choices afflict all of your interactions and communication when it comes to women. Poor lifestyle choices reflect a lack of investment in yourself, which in turn causes you to be less confident around others for validation.
+
+I first noticed this when I worked with men who still lived at home with their parents. A lot of these men were great guys. They were smart, funny, caring, had interesting hobbies. Some even had a good job, but they stayed with their parents for other reasons (health, etc.)
+
+Yet they got absolutely no results. Women never responded warmly to them, and they never seemed quite as motivated or as confident.
+
+There’s a certain baseline level of independence and self-sufficiency that your lifestyle must give you for you to be able to move forward. If you’re constantly stressed by work, upset by your friends, and in poor health, then no amount of work on your anxieties and communication is going to help much. You’re effectively putting a ceiling on your development and your potential with women.
+
+Get your life taken care of. Get healthy. Find a happy group of friends. Find a few hobbies that you love. Develop opinions. Start caring about what you spend your time doing. This increases your self-investment and will make you less needy around others. This, in turn, will give you the courage to take the correct action and the wherewithal to communicate effectively. This is honest living.
+
+# Part IV: Honest Action
+
+# Chapter 9 What Are Your Stories?
+
+
 
 
 
