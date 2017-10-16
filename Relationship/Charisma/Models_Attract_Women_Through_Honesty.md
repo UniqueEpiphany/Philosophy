@@ -869,6 +869,57 @@ It’s all relative. The key is to 1) recognize your personal interests and stre
 
 ### Social Proof
 
+The concept of social proof comes from influence psychology and is well documented in everything from salesmanship to advertising, to politics, and to attraction and relationships.
+
+The idea is that as humans when we see many other people valuing something, we will unconsciously value it ourselves. For instance, if everybody else is talking about a new movie, we are more likely to want to see it because we’ll uncon“sciously assume that it’s a good or important movie to see. This works with people as well. This is one reason why men in power — celebrities, athletes, etc. — are desired by so many women. The goal, as a man, is to cultivate as much social proof within your demographic as possible.
+
+So, for instance, if you are a high-powered executive at your firm, then you have a large degree of social status and social proof at work. Chances are, the women who work with you are going to have some degree of attraction for you. But if you go to a bar on the weekend and know nobody there, then your social status is back to nothing. You’re just another man there.
+
+Social proof only functions within a demographic itself. That’s why once you’ve narrowed down your demographic, you want to cultivate your connections and put yourself into as big of a leadership position as possible. Don’t just join the intramural ultimate Frisbee team, start organizing it. Don’t just volunteer at a charity event, help find sponsors for it. Don’t just go hang out at a local club, but become a promoter for it.
+
+__Part of living the honest lifestyle is to pursue what you’re passionate about to the fullest extent.__ If you absolutely love visiting art exhibitions, don’t just visit a bunch of art exhibitions, but take an active role in the organization, start a meet up group to find other people who want to visit them, or create a forum for commentary. __Don’t just pursue your interests, become a leader in your interests. Don’t just choose a demographic of women to meet, dominate the demographic.__
+
+### Being Something Versus Saying Something
+
+If there’s one takeaway from this chapter, it’s that __it is far more powerful to be something attractive rather than to say something attractive__. You can say the most attractive sentence in the world, but if it isn’t backed up by who you are, then it’s not going to have any meaning. Whereas if you are something amazing, then anything you say will be attractive because it will be coming from a genuinely attractive man.
+
+Women are attracted to your identity. Words mean nothing. What you say is only a means to buy you enough time to show her that identity. Notice I said “show her” not “tell her.”
+
+A successful man doesn’t need to prove he’s successful by ordering something not on the menu. A powerful man doesn’t have to decree to his date what she’s going to eat that night.
+
+This is why trying to impress women by flaunting an image of what you think is attractive will always backfire. Men can go out and perform as much as they want — for weeks, months, or even years — and they’ll never get good results because they’re not portraying themselves well. They don’t have a clear and successful identity. They aren’t in touch with the way in which they’re living their lives.
+
+When you’re like this man – when you’re focused so much on performing rather than actually being – then you are out of touch with your identity, who you are, and what you want. And when you’re out of touch with yourself, you will fall into the abyss of vague and empty demographics. You will aimlessly claw for whatever woman comes near you. You will be left bewildered at how you seem unable to polarize anyone.
+
+Discovering your truth and establishing your identity is necessary to determine the demographics of women you desire and the demographics of women you appeal to. And, as we’ll see, working your demographics underlies everything else in dating.
+
+# Chapter 8  Lifestyle and Presentation
+
+As men, we’re prone to assume that women perceive attraction in the same way we do. Science and psychology show that this isn’t the case.
+
+Men judge female beauty by physical traits first, personality and presentation second: high cheekbones, facial symmetry, waist-to-hip ratio, breast size, etc. As such, we often fall into the mistake that women judge our attractiveness with the same metrics; hence, obsessions with bench presses, height, and penis pills.
+
+Yes, physical measurements play a role in how a man’s appearance is judged, but research shows that other factors are more important.
+
+That’s why I draw the distinction between being good-looking and being attractive. Not everybody is born good-looking. But any man, with some time and effort, can become attractive. And in the end, what women want is a man who is attractive.
+
+For some reason, many men believe that their physical appearance is set in stone and they rarely have any interest in altering it or making any major changes. What they don’t understand is that the same man can present himself in varying ways, some of which are far more attractive than others.
+
+Here are a couple unfortunate truths. The first is that appearance is extremely important. The difference between being perceived as stylish and unstylish is night and day. Yes, you can still be dressed like a bum and get girls, but the difference in the effort-to-reward ratio is massive. A makeover and wardrobe change can make meeting and dating women three times easier literally overnight. Not to mention all of the psychological side benefits of making you feel more confident, more interesting, more excited, etc.
+
+Remember, your outward appearance is a reflection of your self-investment (or lack thereof). And your level of self-investment will make you less needy towards others, therefore making your behavior more attractive. If you don’t put a lot of time and effort into how you look and how you present yourself to the world, women look at that and make unconscious assumptions about your status as a man.
+
+The first and obvious step involves grooming and general maintenance. That means regular showering, shaving and haircuts, wearing deodorant, brushing and flossing your teeth, keeping clean fingernails, and wearing clean clothes.
+
+I should not have to be telling you this stuff, but just in case I do, there it is. The above paragraph is non-negotiable, starting today.
+
+There, now let’s move on to the two biggest factors on your appearance, the two F’s: Fashion and Fitness.
+
+If these two F’s don’t excite you or if your immediate thought is, “Oh, I’ll skip this and go straight to the pick up lines,” then I hate to break it to you, but things aren’t going to get any easier. People are always talking about what the “magic pill” to attraction is. If there was such a thing it would be the two F’s. Bar none, fitness and fashion will do more to attract women in a shorter amount of time than anything else you can do. Being in decent shape and dressing well will make every phase of the process easier and smoother, from meeting women, to attracting them, to getting physical with them, to dating them, to staying in a relationship with them. There literally is no downside to either one.
+So listen up and make a serious commitment to yourself, because if you don’t make a commitment to yourself then nobody else will.
+
+### Fashion and Fitness
+
 
 
 
