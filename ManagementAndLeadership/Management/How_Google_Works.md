@@ -220,6 +220,50 @@ Promote transparency and sharing of ideas across divisions. Open up everyone’s
 
 ### Ah’cha’rye
 
+As someone launching a new venture (or reinventing an established one), you are signing up for long days, sleepless nights, and maybe some missed birthday parties. You will hire people who need to believe in you and your idea enough to be willing to make the same sacrifices. To do all this, you have to be crazy enough to think you will succeed, but sane enough to make it happen. This requires commitment, tenacity, and most of all, single-mindedness. 
+
+### Don’t be evil
+
+The famous Google mantra of “Don’t be evil” is not entirely what it seems. Yes, it genuinely expresses a company value and aspiration that is deeply felt by employees. But “Don’t be evil” is mainly another way to empower employees. The experience Eric had was not unusual (except for the fist pounding): Googlers do regularly check their moral compass when making decisions.
+
+When Toyota invented its famous kanban system of just-in-time production, one of its quality control rules was that any employee on the assembly line could pull the cord to stop production if he noticed a quality problem.54 That same philosophy lies behind our simple three-word slogan. When the engineer in Eric’s meeting called the proposed new feature “evil,” he was pulling the cord to stop production, forcing everyone to assess the proposed feature and determine if it was consistent with the company’s values. Every company needs a “Don’t be evil,” a cultural lodestar that shines over all management layers, product plans, and office politics.
+
+This is the ultimate value of having a well-established and well-understood company culture. It becomes the basis for everything you and the company do; it is the safeguard against something going off the rails, because it is the rails. The best cultures are aspirational.That is the power of a great culture: It can make each member of the company better. And it can make the company ascendant.
+
+### Strategy—Your Plan Is Wrong
+
+We have no idea what your venture is or even your industry, so we won’t presume to tell you how to create a business plan. But we can tell you with 100 percent certainty that if you have one, it is wrong. MBA-style business plans, no matter how well conceived and thought out, are always flawed in some important way. Faithfully following that flawed plan will result in what entrepreneur Eric Ries calls “achieving failure.” __This is why a venture capitalist will always follow the maxim of investing in the team, not the plan. Since the plan is wrong, the people have to be right. Successful teams spot the flaws in their plan and adjust.__
+
+So how can a new venture attract great people and other important things (like financing) without having a plan? In fact, it’s fine to have a plan, but understand that it will change as you progress and discover new things about the products and market. This rapid iteration is critical to success, but equally important is the foundation upon which the plan is built. The tectonic, technology-driven shifts that characterize the Internet Century have rendered some of the commonly accepted strategic fundamentals we learned in school and on the job incorrect.56 So although your plan might change, it needs to be based on a foundational set of principles that are grounded in how things work today and that guide your plan as it shape-shifts its way to success. The plan is fluid, the foundation stable.
+
+Some prospective team members may be turned off by this flexibility; most people don’t like uncertainty. Smart creatives, on the other hand, relish the “we’ll figure it out” approach—they have, as Jonathan wrote in one person’s review, the “pliancy to roll with the punches in this vertiginous environment.” In fact, they won’t trust a plan that claims to have all the answers, but will jump at one that doesn’t, as long as it is built on the right foundation.
+
+The result was a presentation entitled “Google Strategy: Past, Present, and Future.” We delivered it to the board in October 2002 (setting the stage for Mike Moritz’s request for a more comprehensive plan the following summer), and components of it continued to be used to describe Google’s approach for years thereafter. The principles that it describes were quite different from those of the normal late-’90s dot-com, and today they stand as a foundational blueprint for how to create an Internet Century success story: __Bet on technical insights that help solve a big problem in a novel way, optimize for scale, not for revenue, and let great products grow the market for everyone.__
+
+### Bet on technical insights, not market research
+
+Since then, most of Google’s successful products have been based on strong technical insights, while most of the less successful ones lacked them. AdWords, the Google ads engine that generates most of the company’s revenue, was based on the insight that ads could be ranked and placed on a page based on their value as information to users, rather than just by who was willing to pay more. Google News, the site that aggregates news headlines from thousands of media outlets, was based on the insight that we could algorithmically group stories by topic, not source. Chrome, Google’s open-source browser, was founded on the insight that as websites grew more complex and powerful, browsers needed to be reengineered for speed. Pick an innovative, successful Google product, and you are likely to find at least one significant technical insight behind it, the sort of idea that could have appeared in a technical journal. Knowledge Graph in search is based on organizing the Internet’s vast amount of unstructured data about a particular person, place, or thing into structured data, and presenting it in an easy-to-consume format. YouTube Content ID creates a unique data representation for every audio and video clip and matches that fingerprint against a global rights database, thereby giving content rights owners the ability to find (and sometimes monetize) their content on YouTube. Translate gets help from a vast multilingual user base to continuously improve translation quality. Hangouts (live video chat with one or more people) transcodes various video formats in the cloud rather than at the device level, making it one-click easy to conduct a global video conference from any device.
+
+__Product leaders create product plans, but those product plans often (usually!) lack the most important component: What is the technical insight upon which those new features, products, or platforms will be built? A technical insight is a new way of applying technology or design that either drives down the cost or increases the functions and usability of the product by a significant factor. The result is something that is better than the competition in a fundamental way. The improvement is often obvious; it doesn’t take a lot of marketing for customers to figure out that this product is different from everything else.__
+
+Sometimes developing technical insights is simple—OXO built a business by ergonomically redesigning kitchen tools—but more often it’s hard, which is perhaps why most companies don’t make it a foundation of their strategy. Rather, they follow the conventional MBA approach of figuring out what they are best at (their competitive advantage, per Michael Porter), and then leveraging that to expand into adjacent markets. This approach can be very effective if you are an incumbent that measures success in percentage points, but not if you are trying a new venture. You will never disrupt an industry or transform your business, and you’ll never get the best smart creatives on board, if your strategy is narrowly based on leveraging your competitive advantage to attack related markets.
+
+Companies can also rely on smart tactics in pricing, marketing, distribution, and sales to squeeze out more market share and higher profits. Think of all the products in a grocery aisle slapped with a “new, improved” label, when in fact the only discernible improvement is in packaging and advertising. These tactics are often informed by market research, which involves a set of consultants slicing and dicing the company’s prospective customer base into narrowly defined segments—digital millennials here, Generation X there, tweens, bleens, spleens—leading the product designers to end up creating 31 flavors of mediocrity (no offense, Baskin-Robbins). The best thing about market research consultants? They are easy to blame and fire when they are wrong.
+
+__Market research can’t tell you about solving problems that customers can’t conceive are solvable. Giving the customer what he wants is less important than giving him what he doesn’t yet know he wants.__
+
+There’s nothing wrong with continuous improvement and smart business tactics, but the tail is wagging the dog when market research becomes more important than technical innovation. Most incumbents get their start through technical insights, but then they stray (as tail-wagged dogs often do). The suits become more important than the lab coats. This may or may not be a fashion mistake, but it’s certainly a mistake for the incumbent—and an opportunity for the attacker.
+
+__Basing products on technical insights has always been a core principle of Google, but its importance became even more clear to us in 2009, when we reviewed our product line and started to see a pattern emerging: The best products had achieved their success based on technical factors, not business ones, whereas the less stellar ones lacked technical distinction.__ Our brand had gotten strong enough that any product we launched would gain a certain amount of market momentum just by virtue of coming from Google. If we measured success by number of users, we could (and did) trick ourselves into believing that the products were successful. Sometimes they weren’t, though; momentum for many of these offerings flat-out stalled. And in virtually every case, the flat-lining products were the ones that lacked technical insights.
+
+### A period of combinatorial innovation
+
+
+
+
+
+
+
 
 
 
