@@ -288,6 +288,33 @@ __There’s another important benefit of platforms: As they grow and get more va
 
 ### Coase and the nature of the firm
 
+One very compelling—and underappreciated—aspect of the Internet is how it has greatly expanded the potential to build platforms not just in the technology business, but in any industry.
+
+Companies have always built networks, but historically those networks were internal and designed to reduce costs. In this way, they followed the tenets of University of Chicago economist and Nobel laureate Ronald Coase, who argued that it often makes sense for firms to do things internally rather than externally, because the transaction costs of finding vendors, negotiating contracts, and making sure the work gets done right are high. As Coase put it, “a firm will tend to expand until the costs of organizing an extra transaction within the firm become equal to the costs of carrying out the same transaction by means of an exchange on the open market or the costs of organizing in another firm.“ Many smart twentieth-century companies ran the numbers and found that for much of what they wanted to get done, Coase was right: __The internal management costs were lower than the transaction costs of outsourcing. This led them to do as much as they could within the organization, and, when they did go outside their four walls, they worked with a small group of tightly controlled partners. So the twentieth century was dominated by corporations that were large hierarchies—or, at their most expansive, closed networks.__
+
+Today, Coase’s framework still holds true—but it leads to radically different outcomes than it did in much of the twentieth century. Rather than growing the biggest possible closed networks, companies are outsourcing more functions and working with a bigger and more diverse network of partners. Why? Don Tapscott put it well in Wikinomics, when he wrote that “the Internet has caused transaction costs to plunge so steeply that it has become much more useful to read Coase’s law, in effect, backward: Nowadays firms should shrink until the cost of performing a transaction internally no longer exceeds the cost of performing it externally.” Most companies have taken this approach purely for operational and cost-cutting reasons: They save money by outsourcing jobs to lower-wage markets.
+
+__But they miss an important point. In the Internet Century, the objective of creating networks is not just to lower costs and make operations more efficient, but to create fundamentally better products. Lots of companies build networks to lower their costs, but fewer do so to transform their products or business model. This is a massive missed opportunity for incumbents in numerous industries, creating a giant opening for new competitors.__
+
+This is the difference between twenty-first- and twentieth-century economies. Whereas the twentieth century was dominated by monolithic, closed networks, the twenty-first will be driven by global, open ones. There are platform opportunities all around us. The successful leaders are the ones who discover them.
+
+### Specialize
+
+Another approach is to find ways to specialize; sometimes the best way to grow a platform is to find a specialty that has the potential to expand. To grow its search platform in the late ’90s, Google focused on one thing: being great at search, which we measured along five axes—speed (fast is always better than slow), accuracy (how relevant are the results to the user’s query?), ease of use (can everyone’s grandparents use Google?), comprehensiveness (are we searching the entire Internet?), and freshness (how fresh are the results?). The company was so intent on getting users the right answers, that Google search results often included links to Yahoo, AltaVista, and Ask Jeeves at the bottom of the page so users could easily try those sites if they didn’t like Google’s results.
+
+### Default to open, not closed
+
+Platforms generally scale more quickly when they are open. Look at the biggest platform of them all, the Internet. In the early ’70s, when Vint Cerf and Robert Kahn76 developed TCP/IP (Transmission Control Protocol / Internet Protocol), which enabled disparate computer networks (such as the Internet’s forefather, ARPANET) to be connected and communicate, they weren’t quite sure of the size of the networks they were connecting, or how many there were. So they didn’t set an upper limit on the number of networks that could be connected, and in fact decided to let any network connect to any other using their protocol. This singular decision to keep the Internet open (which was not a foregone conclusion at the time), directly led to the remarkable web we use every day.(Hal Varian calls the Internet “a lab experiment that got loose.”).
+
+
+
+
+
+
+
+
+
+
 
 
 
