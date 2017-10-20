@@ -16,6 +16,8 @@ I have working experience with both back-end and front-end technologies though I
 ### Questions to ask
 
 Kyel mentioned that you are managing multiple teams, can you give me some information about these teams?
+Since you manage multiple teams, I am sure they cooperate a lot. Do these teams do cross-team projects?
+How many and what kind of open positions you team have?
 
 ```
 Ask about the projects they are currently working on.
@@ -26,7 +28,6 @@ What are the next steps in the interview process?
 If I used to be provided the job, what preparation may I do?
 Is there anything we haven't covered that you think is important to know about working here?
 ```
-
 
 ### Final
 
