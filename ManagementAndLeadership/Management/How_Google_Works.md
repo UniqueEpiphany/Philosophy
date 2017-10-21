@@ -374,6 +374,64 @@ __From the outset, Google’s founders understood that to consistently hire the 
 
 ### The herd effect
 
+__A workforce of great people not only does great work, it attracts more great people. The best workers are like a herd: They tend to follow each other. Get a few of them, and you’re guaranteed that a bunch more will follow.__ Google is renowned for its fabulous amenities, but most of our smart creatives weren’t drawn to us because of our free lunches, subsidized massages, green pastures, or dog-friendly offices. __They came because they wanted to work with the best smart creatives.__
+
+__This “herd effect” can cut both ways: While A’s tend to hire A’s, B’s hire not just B’s, but C’s and D’s too. So if you compromise standards or make a mistake and hire a B, pretty soon you’ll have B’s, C’s, and even D’s in your company. And regardless of whether it works to the benefit or detriment of the company, the herd effect is more powerful when the employees are smart creatives and the company is new. In that case, each person’s relative importance is magnified; early employees are more conspicuous. Also, when you put great people with great people, you create an environment where they will share ideas and work on them. This is always true, but particularly in an early-stage environment.__
+
+__So set the bar high from the very beginning, and then shout it from the rafters.__
+
+__This is especially important for product people, because they can have such a big impact. Pay close attention to hiring them, and when your process guarantees excellence at the product core of the company, it will spill over to every other team as well. The objective is to create a hiring culture that resists the siren song of compromise, a song that only gets louder amidst the chaotic whirlwind of hypergrowth.__
+
+### Passionate people don’t use the word
+
+__A fine marker of smart creatives is passion. They care.__ So how do you figure out if a person is truly passionate, since truly passionate people don’t often use the “P-word”? In our experience, a lot of job candidates have figured out that passion is a sought-after trait. When someone begins a sentence with the conspicuously obvious phrase “I’m passionate about…” and then proceeds to talk about something generic like travel, football, or family, that’s a red flag that maybe his only true passion is for conspicuously throwing the word “passion” around a lot during interviews.
+
+__Passionate people don’t wear their passion on their sleeves; they have it in their hearts. They live it. Passion is more than résumé-deep, because its hallmarks—persistence, grit, seriousness, all-encompassing absorption—cannot be gauged from a checklist. Nor is it always synonymous with success. If someone is truly passionate about something, they’ll do it for a long time even if they aren’t at first successful. Failure is often part of the deal. (This is one reason we value athletes, because sports teach how to rebound from loss, or at least give you plenty of opportunities to do so.) The passionate person will often talk at length, aka ramble, about his pursuits. This pursuit can be professional. In our world, “perfecting search” is a great example of something people can spend an entire career on and still find challenging and engaging every day. But it can also be a hobby.__ Andy Rubin, who started Android, loves robots (and is now spearheading Google’s nascent efforts in that area). Wayne Rosing, Google’s first head of engineering, loves telescopes. Captain Eric loves planes and flying (and telling stories of flying planes).
+
+More often than not, these seemingly extracurricular passions can yield direct benefits to a company. Android’s great Sky Map is an astronomy application that turns a phone into a star chart. It was built by a team of Googlers in their spare time (what we call “20 percent time”—more on that later), not because they love to program computers, but because they were enthusiastic amateur astronomers. We have been just as impressed by one candidate who studied Sanskrit, and another who loved restoring old pinball machines. Their deep interest made them more interesting, which is why in an interview context our philosophy is not “Don’t get them started.” When it comes to the things they care most about, we want to get them started.
+
+Once they start, listen very carefully. Pay attention to how they are passionate. For example, athletes can be quite passionate, but do you want the triathlete or ultramarathoner who pursues his craft all alone, or someone who trains with a group? Is the athlete solo or social, exclusive or inclusive? When people are talking about their professional experience, they know the right answers to these questions—most people don’t like a loner in the work environment. But when you get people talking about their passions, the guard usually comes down and you gain more insight into their personalities.
+
+### Hire learning animals
+
+Think about your employees. Which of them can you honestly say are smarter than you? Who among them would you not want to face across a chessboard, on Jeopardy!, or in a crossword-puzzle duel? The adage is to always hire people who are smarter than you. How well do you follow it?
+
+This adage still holds true, but not for the obvious reasons. Of course smart people know a lot and can therefore accomplish more than others less gifted. But hire them not for the knowledge they possess, but for the things they don’t yet know. Ray Kurzweil said that “information technology’s growing exponentially… And our intuition about the future is not exponential, it’s linear.”93 In our experience raw brainpower is the starting point for any exponential thinker. __Intelligence is the best indicator of a person’s ability to handle change.__
+
+It is not, however, the only ingredient. We know plenty of very bright people who, when faced with the roller coaster of change, will choose the familiar spinning-teacups ride instead. They would rather avoid all those gut-wrenching lurches; in other words, reality. __Henry Ford said that “anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. The greatest thing in life is to keep your mind young.” Our ideal candidates are the ones who prefer roller coasters, the ones who keep learning. These “learning animals” have the smarts to handle massive change and the character to love it.”__
+
+__Psychologist Carol Dweck has another term for it. She calls it a “growth mindset.” If you believe that the qualities defining you are carved in stone, you will be stuck trying to prove them over and over again, regardless of the circumstances. But if you have a growth mindset, you believe the qualities that define you can be modified and cultivated through effort. You can change yourself; you can adapt; in fact, you are more comfortable and do better when you are forced to do so. Dweck’s experiments show that your mindset can set in motion a whole chain of thoughts and behaviors: If you think your abilities are fixed, you’ll set for yourself what she calls “performance goals” to maintain that self-image, but if you have a growth mindset, you’ll set “learning goals”—goals that’ll drive you to take risks without worrying so much about how, for example, a dumb question or a wrong answer will make you look. You won’t care because you’re a learning animal, and in the long run you’ll learn more and scale greater heights.”__
+
+Most people, when they are hiring for a role, look for people who have excelled in that role before. This is not how you find a learning animal. Peruse virtually any job listing and one of the top criteria for a position will be relevant experience. If the job is for chief widget designer, it’s a given that high on the list of requirements will be five to ten years of widget design and a degree from Widget U. 
+
+Favoring specialization over intelligence is exactly wrong, especially in high tech. The world is changing so fast across every industry and endeavor that it’s a given the role for which you’re hiring is going to change. Yesterday’s widget will be obsolete tomorrow, and hiring a specialist in such a dynamic environment can backfire. A specialist brings an inherent bias to solving problems that spawns from the very expertise that is his putative advantage, and may be threatened by a new type of solution that requires new expertise. A smart generalist doesn’t have bias, so is free to survey the wide range of solutions and gravitate to the best one.
+
+Finding learning animals can be a challenge. Jonathan’s modus operandi is to ask candidates to reflect on a past mistake. In the early 2000s, he used to ask candidates “What big trend did you miss about the Internet in 1996? What did you get right, and what did you get wrong?” It’s a deceptively tricky question. It makes candidates define what they expected, link it to what they observed and explore the revelations, and forces them to admit a mistake—and not in the lame, my-biggest-weakness-is-that-I’m-a-perfectionist sort of way. It’s impossible to fake the answer.
+
+The question can be adapted to any big events of the recent past. The point is not to see if someone was prescient, but rather how she evolved her thinking and learned from her mistakes. Few people answer this question well, but when they do, it’s a great indication that you’re talking to a learning animal. Of course, they could just come out and tell you, “I have no special talents. I am only passionately curious.”98 That’s what Albert Einstein claimed, and we would have hired him in an instant (despite his use of the P-word; devising the theory of relativity trumps that).
+
+Once you hire those learning animals, keep learning them! Create opportunities for every employee to be constantly learning new things—even skills and experiences that aren’t directly beneficial to the company—and then expect them to use them. This won’t be challenging for true learning animals, who will gladly avail themselves of training and other opportunities. But keep an eye on the people who don’t; perhaps they aren’t quite the learning animals you thought they were.
+
+### The LAX test
+
+So, passion is crucial in a potential hire, as is intelligence and a learning-animal mindset. Another crucial quality is character. We mean not only someone who treats others well and can be trusted, but who is also well-rounded and engaged with the world. Someone who is interesting.
+
+Judging character during the interview process used to be fairly easy, since job interviews often included lunch or dinner at a restaurant and perhaps a drink or two, Mad Men style. Such a venue allowed the hiring executive to observe how the candidate comported himself “as a civilian.” What happens when he lets his guard down? How does he treat the waiter and bartender? Great people treat others well, regardless of standing or sobriety.
+
+### Insight that can’t be taught
+
+You often hear people say they only want to work with (or elect as president) someone they would want to have a beer with. Truth be told, some of our most effective colleagues are people we most definitely would not want to have a beer with. (In a few rare instances they are people we would rather pour a beer on.) __You must work with people you don’t like, because a workforce comprised of people who are all “best office buddies” can be homogeneous, and homogeneity in an organization breeds failure. A multiplicity of viewpoints—aka diversity—is your best defense against myopia.__
+
+We could go off on a politically correct tangent on how hiring a workforce that is diverse in terms of race, sexual orientation, physical challenges, and anything else that makes people different is the right thing to do (which it is). __But from a strictly corporate point of view, diversity in hiring is even more emphatically the right thing to do.__
+
+Great talent often doesn’t look and act like you. When you go into that interview, check your biases at the door and focus on whether or not the person has the passion, intellect, and character to succeed and excel.
+
+The same goes for managing people once they join you. Just like hiring, managing performance should be driven by data, with the sole objective of creating a meritocracy. You cannot be gender-, race-, and color-blind by fiat; you need to create empirical, objective methods to measure people. Then the best will thrive, regardless of where they’re from and what they look like.
+
+### Expand the aperture
+
+
+
 
 
 
