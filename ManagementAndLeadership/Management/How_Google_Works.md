@@ -356,6 +356,26 @@ Many large, successful companies started with the following:
 
 ### Talent—Hiring Is the Most Important Thing You Do
 
+If you asked managers at large companies “What is the single most important thing you do at work?” most would reflexively answer “Go to meetings.” If you persisted—“No, not the most boring thing you do at work, the most important”—they would probably respond by spouting some of the standard principles they learned in business school, something about “devising smart strategies and creating opportunistic synergies to accumulate accretive financial effects in an increasingly competitive market.” __Now imagine asking the same question of the top sports coaches or general managers. They go to meetings all day too, yet they would probably say that the most important thing they do is draft, recruit, or trade for the best players they can. Smart coaches know that no amount of strategy can substitute for talent, and that is as true in business as it is on the field. Scouting is like shaving: If you don’t do it every day, it shows.__
+
+__For a manager, the right answer to the question “What is the single most important thing you do at work?” is hiring.__
+
+It didn’t matter if the person would be an entry-level software engineer or a senior executive, Googlers made it a priority to invest the time and energy to ensure they got the best possible people.
+
+You would think this level of commitment would be common. But even though most managers get their own positions through the familiar hiring process—résumé, phone screen, interviews, more interviews, offer, haggling, more haggling, acceptance—once hired, they seemingly do everything in their power to avoid being involved in hiring anyone else. Recruiting is for recruiters. Reviewing résumés can be delegated to young associates or someone in human resources. Interviewing is a chore. That feedback form is so long and intimidating that the task of filling it out inevitably slides to late Friday afternoon, by which time the details of the interview have faded into a blur. So interviewers dash off a cursory report and hope that their colleagues do a better job with their interview feedback. The higher up you go in most organizations, the more detached the executives get from the hiring process. The inverse should be true.
+
+__There’s another, even more important aspect to hiring well in the Internet Century. The traditional hiring model is hierarchical: The hiring manager decides who gets the job, while other members of the team provide their input and senior executives rubber-stamp whatever decision the manager makes. The problem with this is that once that person starts at the company, the working model is (or should be) collaborative, with high degrees of freedom and transparency and a disdain for rank. So now a single hiring manager has made a decision that directly impacts numerous teams besides her own.__
+
+There’s another reason that hierarchical hiring doesn’t work. Leaders (and management book authors) often say they hire people smarter than themselves, but in practice this rarely happens in a hierarchical hiring process. The rational “let’s-hire-this-guy-because-he’s-so-smart” decision usually gets usurped by the more emotional “but-then-he-might-be-better-than-me-and-make-me-look-bad-and-then-I-won’t-get-promoted-and-my-kids-will-think-I’m-a-loser-and-my-wife-will-run-off-with-that-guy-from-Peet’s-Coffee-and-take-my-dog-and-truck” decision. In other words, human nature gets in the way.
+
+__From the outset, Google’s founders understood that to consistently hire the best people possible, the model to follow wasn’t that of corporate America, but that of academia. Universities usually don’t lay professors off, so they invest a lot of time in getting faculty hiring and promotion right, normally using committees. This is why we believe that hiring should be peer-based, not hierarchical, with decisions made by committees, and it should be focused on bringing the best possible people into the company, even if their experience might not match one of the open roles.__ Eric hired Sheryl Sandberg even though he didn’t have a job for her. It didn’t take long for her to assume the task of building our small business sales team, a role that didn’t formally exist until she helped create it. (Of course, Sheryl later left us and became COO of Facebook and a best-selling author. When you hire smart creatives, some of them eventually smartly create opportunities for themselves outside the company. More on that later in the chapter.) In a peer-based hiring process, the emphasis is on people, not organization. The smart creatives matter more than the role; the company matters more than the manager.
+
+"Our people are our most important asset” is a well-worn cliché, but building a team of smart creatives that lives up to that statement requires more than just saying the words: You need to change how the members of the team are hired. The nice thing about these changes is that anyone can make them. Some of the culture recommendations that we made in the earlier chapter may be challenging for ongoing companies to adopt, but anyone can change how they hire. The not-so-nice thing is that hiring well takes a lot of work and time. But it is the best investment you can make.
+
+### The herd effect
+
+
+
 
 
 
