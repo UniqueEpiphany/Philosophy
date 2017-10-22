@@ -999,10 +999,20 @@ Get your life taken care of. Get healthy. Find a happy group of friends. Find a 
 
 # Chapter 9 What Are Your Stories?
 
+Jump to today. I rarely experience approach anxiety consciously anymore. That isn’t to say I’m some sort of badass. I put in my time. I paid my dues. A lot of it was fun and a lot of it sucked and was humiliating. But I did it. I grew. And I’m a better person for it now. Through the basic rote exercise of meeting thousands of women in the most basic or ridiculous scenarios over the years, most of that palpable fear — the hand sweating, the fast breathing, the mind going blank — most of that is gone.
 
+What’s not gone, and as far as I can tell, what will never be gone, is a continuing internal resistance to change, whether it be through outright fear, or subtle subconscious thoughts trying to sabotage me. That never stops. I don’t feel nervous anymore, but I do feel a dreadful judgment and boredom. “Only prissy girls wear crap like that,” “Oh God, she’s one of those girls who’s always on her phone. I don’t have time for this.” Sometimes it happens pre-approach. Sometimes it happens 30 minutes in. Sometimes it happens on the second date. But always, these judgments aren’t accurate portrayals of her. I don’t even know her. Yet I’m judging her. It’s a defense mechanism. My conscious fear has disappeared, but my subconscious resistance is still alive and kicking.
 
+And from what I’ve observed, everybody’s subconscious defense mechanisms are still kicking. The resistance doesn’t go away. It just changes shape. Over the years, anxiety morphs into apathy, which morphs into arrogance. The resistance may come before meeting her or before kissing her or before having sex or before committing to a relationship. We all have our own weak spots, and those weaknesses each have their own form of resistance to the change we want. One boundary simply gets pushed back into another and another.
 
+Whether you feel incredibly nervous before you approach, or if you procrastinate calling women you’ve met, or if you tell yourself that you suddenly magically “don’t feel like” having sex when you’re out on a date with a girl even though she’s obviously into you and wants to go home with you, this is your subconscious resisting change. And your mind is inventing stories to explain that resistance. These stories have emotions tied to them, whether they’re fear, boredom, anger, shame, or whatever — which contribute to keeping you in the same place you are right now. It’s your emotional inertia. It’s the status quo. The mechanisms wired into you to keep you there, safe. And we all have them.
 
+The only important "skill" in dating is learning how to stop buying into your own bullshit, to stop believing your own “stories. The resistance is constant. So you must constantly fight against it, acknowledge the stories you create for yourself, look them in the eye and say, “You know what, I don’t care if she’s on her phone and her ass says ‘PINK’ on it, I want to meet her.” And then do it. Without hesitation. Without fear. And without apology.
+Sure, you’ll have to flex your mental and emotional muscles, and build up your body of self-awareness, but here’s the good news: those are the muscles chicks actually dig.
+
+Unfortunately, we all buy into our own bullshit. We all believe our own stories from time to time. And chances are, the more anxiety and fear you have surrounding women and your sexuality, the more of your own stories and bullshit you’ve bought into.
+
+### Defense Mechanisms
 
 
 
