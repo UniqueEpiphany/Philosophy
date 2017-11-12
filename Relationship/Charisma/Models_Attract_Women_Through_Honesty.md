@@ -1014,7 +1014,64 @@ Unfortunately, we all buy into our own bullshit. We all believe our own stories 
 
 ### Defense Mechanisms
 
+Most of us have a lot of fear and shame bundled up in our sexuality. These fears usually manifest themselves in a handful of very specific scenarios:
 
+* Fear of approaching and starting a conversation with an attractive woman
+* Fear of stating sexual interest either directly or indirectly (by asking for a phone number, calling a phone number, asking her out on a date, etc.)  
+* Fear of initiating sexual contact (typically the first kiss situation)
+* Fear of actual sexual intercourse
+
+The majority of men experience at least one of the above fears to some degree when it comes to interacting with women. There is a minority of men who will be completely devoid of one or more of the above fears and a very tiny minority who will be devoid of all of the fears above.
+
+These anxieties are manifestations of neediness and an unwillingness to be vulnerable. Typically, the needier you are in a certain area, the more anxiety you’ll have in that area.
+
+This is unscientific, but in my experience coaching and working with hundreds of men, I’ve noticed correlations between high degrees of anxiety and experiencing one or more of the following situations: lack of a father figure “growing up, emotionally abusive childhood, childhood traumas, strict religious upbringing, strict cultural upbringing, bullying or social ostracism growing up.
+
+The sad fact about anxiety is that once you have it, it’s there and figuring out why it’s there doesn’t help much. You can either avoid it the rest of your life, or you can do something about it.
+
+We’re here to do something about it. This section of the book is called Honest Action for a reason.
+
+I personally think anxiety is the biggest culprit when it comes to preventing men from successfully meeting and dating women. You remove anxiety, and trial-and-error will take care of most of the rest.
+
+Anxiety, almost by its very definition, represents a high level of neediness. Let’s say a beautiful woman sits down next to you and you want to say something to her but are scared to death. The fact that you’re scared to death demonstrates a high level of investment in her opinion of you, and thus a high degree of neediness. This neediness creates a fight-or-flight response in us — a surge of adrenaline, we begin sweating, our mind starts zipping at a million miles a minute, thinking of everything and nothing all at once — and if we do manage to utter a word, chances are we stutter and sputter and make a red-faced fool out of ourselves.
+
+This then leads to further anxiety the next time a beautiful woman sits down next to us.
+
+This is a terrible conundrum, and almost all of us suffer from it in some form or another. I suffered from it horribly and it took me years to undo it. Hopefully, with what I learned, it won’t take nearly as long or be nearly as painful for you as it was for me.
+
+The first step to overcoming your fears is to figure out what your pattern is.
+
+When we are confronted with our fears or anxieties, we have a pattern or strategy that we usually use to deal with them. For instance, my most common pattern is apathy. Whenever I’m confronted with something I’m afraid of, I pretend — or scratch that, I convince myself — that I don’t actually care. Here are some of the most common patterns that I’ve noticed:
+
+1. Blame Game — The Blame Game is where, when confronted with something he’s afraid of, a man blames someone or something else for his fear. In the context of women, the Blame Game will often result in men convincing themselves of stuff like, “Oh, she’s stuck up,” or “She’s just into guys who are good-looking,” or “She’s too stupid for me anyway,” or “This club is too loud to talk to “people,” or “Women in Miami are just bitches, I need to find a new city." The excuses and blame can be petty and ridiculous, but they can also run deep. The awful part of the blame game is that with it come anger and frustration. And if you do it enough, the anger will pile up and you will end up with some pretty bitter and irrational beliefs about women. Men who have played the blame game their whole lives may develop screwed up beliefs like, “All women care about is how much money a guy has,” or “All girls in bars are stupid and shallow.” This can lead to some pretty dark places.”
+
+2. Apathy and Avoidance — This has always been my Achilles’ heel, and it’s quite common. Experiencing apathy and avoidance is exactly as it says: it’s when a “man convinces himself that he doesn’t care or that it’s not important to him. I did this for years. I convinced myself that I didn’t care about meeting women and that it didn’t really matter if girls I liked didn’t find me attractive. Well, after enough months of sitting home alone looking at porn while all of my friends were going through girlfriend after girlfriend, I had a rude awakening: I do care. Apathy and avoidance isn’t the worst response when avoiding our fears with women in that it usually can’t last forever. We’re biologically compelled to pursue women so at some point, instinct will win over. Where it is dangerous is in other areas of our life such as career, family or hobbies. The apathy and avoidance pattern is the root behind the couch potatoes and disgruntled office workers of the world.
+
+3. Intellectualizing — I guarantee that this is part of the reason you’re here: you have some sort of fear, anxiety or pain related to women, and instead of actually doing something about it, you got online and decided to look up an answer that you could study.
+
+Intellectualizing is sometimes beneficial in that you can learn a ton of information about a lot of subjects, and sometimes, the intellectualizing will lead to more self-awareness and help clarify what sort of action you need to take. But there are many men who use intellectualizing as just another form of avoidance. It tends to be really smart guys too, which is a problem, because the smarter you are, the more you’re able to intellectualize and convince yourself that you need to learn and understand more.
+
+But when it comes to women, this is not the answer (says the guy who wrote a 200-page book on women). Honestly, if you went out and talked to women for a year without ever reading a word of dating advice, you’d probably do OK, assuming you were honest with yourself and able to learn from your mistakes. Sure, this stuff all helps, but in the end, your best teacher is your experience. There comes a certain point where learning more about a subject is no longer beneficial and on the contrary, is just going to get you more mixed up and confused, since you have no experience to actually apply your knowledge to.”
+
+Intellectualizing also ends up having a backlash. Once you study a subject enough, it can actually increase your anxiety. By studying it so much, you’ve put more pressure on yourself to succeed and, therefore, build up higher expectations for yourself.
+
+There are more patterns, but these three above are the main ones that I’ve run into with men trying to overcome their anxieties.
+
+Also, there’s a pattern within each of the responses to fear listed above: they aim to avoid the fear and they usually do it by convincing themselves of something that’s not necessarily true.
+
+The blame game guy will convince himself that it’s her fault. The apathy guy will convince himself that it doesn’t matter. The intellectualizing guy will convince himself that he needs to learn and understand more first. In the end, they're all avoiding what they're afraid of.
+
+Also, realize that no one uses just one defense mechanism. We all use each of them some of the time. In fact, we may stack them on top of each other. For example, “I don’t care what the girls think here because they’re all stuck up bitches, so I’m going to go home," neatly stacks apathy on top of blame.
+
+With that said, we all seem to have a favorite pattern that we fall back on the most often.
+
+The key to overcoming your fears is first and foremost to break your patterned response to your fear. This requires a certain level of self-awareness and discipline.
+
+So for instance, when I was learning to approach women, I had a lot of fear and anxiety. And my pattern was apathy. So I’d be hanging out in a bar, see a cute girl I liked, and my immediate reaction would be to say something like, “Eh, I don’t really feel like talking right now,” or “I don’t feel like meeting girls right now.” This was complete bullshit. I had purposely gone out that night for no other reason than to meet women. I had been reading books and websites all week about nothing but meeting girls. I wanted to meet girls.
+
+It wasn’t until I became aware of this pattern that I was able to start breaking it and forcing myself to talk to that woman I wanted to talk to, even when my mind was telling me that I didn’t want to.
+
+### You Are Not a Victim
 
 
 
