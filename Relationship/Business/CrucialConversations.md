@@ -143,6 +143,24 @@ Asking questions about what we really want serves two important purposes. First,
 
 ##### Common Deviations
 
+As we step up to a crucial conversation, fully intending to stimu late the flow of meaning, many of us quickly change our origiIlal objectives to much less healthy goals. For instance, when G reta fel l under public attack, her immediate reaction was to do whatever it took to save face. Other common, but not·all-thathealthy, objectives include wanting to win, seeking revenge, and hoping to remain safe.
+
+Wanting to win. This particular dialogue killer sits at the top of many of our lists. Heaven only knows that we come by this deadly passion naturally enough. Half of the lV programs we watch make heroes out of people who win at sports or game shows. Ten minutes into kindergarten we learn that if we want to get the teacher's attention, we have to spout the right answer. That means we have to beat our fellow students at the same game. This desire to win is built into our very fiber before we're old enough to know what's going on. Unfortunately, as we grow older, most of us don't realize that this desire to win is continually driving us away from healthy dialogue. We start out with the goal of resolving a problem, but as soon as someone raises the red flag of inaccuracy or challenges our correctness, we switch purposes in a heartbeat.
+
+Seeking revenge. Sometimes, as our anger increases, we move from wanting to win the point to wanting to harm the other person.Eventually, as emotions reach their peak, our goal becomes completely perverted. We move so far away from adding meaning to the pool that now all we want is to see others suffer.
+
+Hoping to remain safe. Of course, we don't always fix mistakes, aggressively discredit others, or heartlessly try to make them suffer. Sometimes we choose personal safety over dialogue. Rather than add to the pool of meaning, and possibly make waves along the way, we go to silence. We're so uncomfortable with the immediate conflict that we accept the certainty of bad results to avoid the possibility of uncomfortable conversation. We choose (at least in our minds) peace over conflict.
+
+##### SECOND, REFUSE THE SUCKER'S CHOICE
+
+Two ugly options. This pernicious strategy is particularly well suited for keeping us off track. It's known as a Sucker's Choice. In order to justify an especially sordid behavior, we suggest that we're caught between two distasteful options. Either we can be honest and attack our spouse, or we can be kind and withhold the truth. Either we can disagree with the boss to help make a better choice-and get shot for it-or we can remain quiet, starve the pool, and keep our job. Pick your poison.
+
+What makes these Sucker's Choices is that they're always set up as the only two options available. It's the worst of either/or thinking. The person making the choice never suggests there's a third option that doesn't call for unhealthy behavior. For example, maybe there's a way to be honest and respectful. Perhaps we can express our candid opinion to our boss and be safe.
+
+Those offering up a Sucker's Choice either don't think of a third (and healthy) option-in which case it's an honest but tragic mistake-or set up the false dichotomy as a way of justifying their unattractive actions. "I'm sorry, but I just had to destroy the guy's self-image if I was going to keep my integrity. It wasn't pretty, but it was the right thing to do."
+
+##### Open You rself to Change
+
 
 
 
