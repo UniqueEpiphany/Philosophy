@@ -1,4 +1,6 @@
-### What's a Crucial Conversation? And Who Cares?
+### Chapter 1
+
+##### What's a Crucial Conversation? And Who Cares?
 
 > The void created by the failure to communicate is soon filled with poison, drivel and mlstepresentation. -c. NORTHCOTE PARKINSON
 
@@ -57,7 +59,9 @@ Immune systems. Consider the ground breaking research done by Dr. Janice Kiecolt
 When stakes are high, opinions vary, and emotions start to run strong, casual conversations become crucial. Ironically, the more crucial the conversation, the less likely we are to handle it well. The consequences of either avoiding or fouling up crucial conversations can be severe. When we fail a crucial conversation, every aspect of our lives can be affected-from our careers, to our communities, to our relationships, to our personal health. As we learn how to step up to crucial conversations-and handle them well-with one set of skills we can influence virtually every domain of our lives.
 
 
-### 2 Give me a lever long enough and I shall move the world. -ARCHIMEDES
+### Chapter 2
+
+> Give me a lever long enough and I shall move the world. -ARCHIMEDES
 
 When it comes to risky, controversial, and emotional conversations, skilled people find a way to get all relevant information (from themselves and others) out into the open.That's it. At the core of every successful conversation lies the free flow of relevant information. People openly and honestly express their opinions, share their feelings, and articulate their theories. They willingly and capably share their views, even when their ideas are controversial or unpopular.
 
@@ -87,9 +91,57 @@ For instance, sometimes we move to silence. We play Salute and Stay Mute. That i
 
 Now, here's how the various elements fit together. When stakes are high, opinions vary, and emotions run strong, we're often at our worst. In order to move to our best, we have to find a way to explain what is in each of our personal pools of meaning especially our high-stakes, sensitive, and controversial opinions, feelings, and ideas-and to get others to share their pools. We have to develop the tools that make it safe for us to discuss these issues and to come to a shared pool of meaning. And when we do, our lives change.
 
-#### DIALOGUE SKILLS ARE LEARNABLE
+### Chapter 3
 
+> More than any time in history mankind faces a crossroads. One path leads to despair and utter hopelessness, the other to total extinction. Let us pray that we have the wisdom to choose correctly. -WOODY ALLEN
 
+##### Start with Heart : How to Stay Focused on What You Really Want
+
+It's time to tum to the how of dialogue. How do you encourage the flow of meaning in the face of differing opinions and strong emotions? Given the average person's track record, it can't be all that easy. In fact, given most people's long-standing habit of costly behaviors, it'll probably require a lot of effort. The truth is, people can change. In fact, thousands of people we (the authors) have worked with over the past decades have made lasting i mprovements. But it requires work. You can't simply drink a magic potion and walk away renewed. Instead, you'll need to take a long hard look at yourself.
+
+In fact, this is the first principle of dialogue-Start with l leart. That is, your own heart. If you can't get yourself right, you'll have a hard time getting dialogue right. When conversations become crucial you'll resort to the forms of communication that you've grown up with-debate, silent treatment, manipulation, and so on.
+
+##### DON'T LOOK AT M E !
+
+When faced with a failed conversation, most of us are quick to blame others. If others would only change, then we'd all live happily ever after. If others weren't so screwed up, we wouldn't have to resort to silly games in the first place. They started it. It's their fault, not ours. And so on. Although it's true that there are times when we are merely bystanders in life's never-ending stream of head-on collisions, rarely are we completely innocent. More often than not, we do something to contribute to the problems we're experiencing.
+
+People who are best at dialogue understand this simple fact and tum it into the principle "Work on me first." They realize that not only are they likely to benefit by improving their own approach, but also that they're the only person they can work on anyway. As much as others may need to change, or we may want them to change, the only person we can continually inspire, prod, and shape-with any degree of success-is the person in the mirror.
+
+There's a certain irony embedded in this fact. People who believe they need to start with themselves do just that. As they work on themselves, they also become the most skilled at dialogue. So here's the irony. It's the most talented, not the least talented, who are continually trying to improve their dialogue skills. As is often the case, the rich get richer.
+
+##### START WITH HEART
+
+Although it's difficult to describe the specific order of events in an interaction as fluid as a crucial conversation, we do know one thing for certain: Skilled people Start with Heart. That is, they begin high-risk discussions with the right motives, and they stay focused no matter what happens.
+
+They maintain this focus in two ways. First, they're steely-eyed smart when it comes to knowing what they want. Despite constant invitations to slip away from their goals, they stick with them. Second, skilled people don't make Sucker's Choices (either/or choices) . Unlike others who justify their unhealthy behavior by explaining that they had no choice but to fight or take flight, the dialogue-smart believe that dialogue, no matter the circumstances, is always an option.
+
+##### FIRST, FOCUS ON WHAT YOU REAllY WANT
+
+Refocus your brain. Now, let's move to a situation you might face. You're speaking with someone who completely disagrees with you on a hot issue. How does all of this goal stuff apply? As you begin the discussion, start by examining your motives. Going in, ask yourself what you really want.
+
+Also, as the conversation unfolds and you find yourself starti ng to, say, defer to the boss or give your spouse the cold shoulder, pay attention to what's happening to your objectives. Are you starting to change your goal to save face, avoid embarrassment, win, be right, or punish others? Here's the tricky part. Our motives usually change without any conscious thought on our part. When adrenaline does our thinking for us, our motives flow with the chemical tide.
+
+In order to move back to motives that allow for dialogue, you must step away from the interaction and look at yourselfmuch like an outsider. Ask yourself: "What am I doing, and if I had to guess, what does it tell me about my underlying motive?" As you make an honest effort to discover your motive, you might conclude: "Let's see. I'm pushing hard, making the argument stronger than I actually believe, and doing anything to win. I've shifted from trying to select a vacation location to trying to win an argument."
+
+Once you call into question the shifting desires of your heart, you can make conscious choices to change them. "What I really want is to genuinely try to select a vacation spot we can all enjoy-rather than try to win people over to my ideas." Put succinctly, when you name the game, you can stop playing it.
+
+But how? How do you recognize what has happened to you, stop playing games, and then influence your own motives? Do what Greta did. Stop and ask yourself some questions that return you to dialogue. You can ask these questions either when you find yourself slipping out of dialogue or as reminders when you prepare to step up to a crucial conversation. Here are some great ones:
+
+What do I really want for myself?   
+What do I really want for others?    
+What do I really want for the relationship?  
+
+Once you've asked yourself what you want, add one more equally telling question:  
+
+How would I behave if I really wanted these results?  
+
+Find your bearings. There are two good reasons for asking these questions. First, the answer to what we really want helps us to locate our own North Star. Despite the fact that we're being tempted to take the wrong path by ( 1 ) people who are trying to pick a fight, (2) thousands of years of genetic hardwiring that brings our emotions to a quick boil, and (3) our deeply ingrained habit of trying to win, our North Star returns us to our original purpose.
+
+Take charge of your body. The second reason for asking what we really want is no less important. When we ask ourselves what we really want, we affect our entire physiology. As we introduce complex and abstract questions to our mind, the problem-solving part of our brain recognizes that we are now dealing with intricate social issues and not physical threats. When we present our brain with a demanding question, our body sends precious blood to the parts of our brain that help us think, and away from the parts of our body that help us take flight or begin a fight.
+
+Asking questions about what we really want serves two important purposes. First, it reminds us of our goal. Second, it juices up our brain in a way that helps us keep focused.  
+
+##### Common Deviations
 
 
 
