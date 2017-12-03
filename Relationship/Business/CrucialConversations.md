@@ -199,6 +199,99 @@ Refuse the Sucker's Choice : As you consider what you want, notice when you star
 
 > I have known a thousand scamps; but I never met one who considered himself so. Self-knowledge isn't so common. -OUiDA
 
+In truth, most of us do have trouble dual-processing (watching for content and conditions)-especially when it comes to a crucial conversation. When both stakes and emotions are high, we get so caught up in what we're saying that it can be nearly impossible to pull ourselves out of the argument in order to see what's happening to ourselves and to others. Even when we are startled by what's going on, enough so that we think: "Yipes ! This has turned ugly. Now what?" we may not know what to look for in order to turn things around. We may not see enough of what's happening.
+
+So what do you look for when caught in the middle of a crucia l conversation? What do you need to see in order to catch problems before they become too severe? Actually, it helps to watch fot' three d i fferent cond itions: the moment a conversation turns crucial, signs that people don't feel safe (silence or violence), and your own Style Under Stress. Let's consider each of these conversation killers in turn.
+
+##### learn to Spot Crucial Conversations
+
+First, stay alert for the moment a conversation turns from a routine or harmless discussion into a crucial one. In a similar vein, as you anticipate entering a tough conversation, pay heed to the fact that you're about to enter the danger zone. Otherwise, yoti can easily get sucked into silly games before you realize what's happened. And as we suggested earlier, the further you stray off track, the harder it can be to return.
+
+To help catch problems early, reprogram your mind to pay attention to the signs that suggest you're in a crucial conversation. Some people first notice physical signals-their stomach gets tight or their eyes get dry. Think about what happens to your body when conversations get tough. Everyone is a little bit dif· ferent. What are your cues? Whatever they are, learn to look at them as signs to step back, slow down, and Start with Heart before things get out of hand.
+
+Others notice their emotions before they notice signs in theit body. They realize they are scared, hurt, or angry and are beginning to react to or suppress these feelings. These emotions can also be great cues to tell you to step back, slow down, and take steps to turn your brain back on.
+
+Some people's first cue is not physical or emotional, but behavioral. It's like an out-of-body experience. They see themselves raising their voice, pointing their finger like a loaded weapon, or becoming very quiet. It's only then that they realize how they're feeling.
+
+So take a moment to think about some of your toughest conversations. What cues can you use to recognize that your brain is beginning to disengage and you're at risk of moving away from healthy dialogue?
+
+##### learn to look for Safety Problems
+
+If you can catch signs that the conversation is starting to tum crucial- before you get sucked so far into the actual argument that you can never withdraw from the content-then you can start dual-processing immediately. And what exactly should you watch for? People who are gifted at dialogue keep a constant vigil on safety. They pay attention to the content-that's a given-and they watch for signs that people are afraid. When friends, loved ones, or colleagues move away from healthy dialogue (freely adding to the pool of meaning)-either forcing their opinions into the pool or purposefully keeping their ideas out of the poolthey immediately tum their attention to whether or not others feel safe.
+
+When it's safe, you can say anything. Here's why gifted communicators keep a close eye on safety. Dialogue calls for the free flow of meaning-period. And nothing kills the flow of meaning like fear. When you fear that people aren't buying into your ideas, you start pushing too hard. When you fear that you may be harmed in some way, you start withdrawing and hiding. Both these reactions-to fight and to take flight-are motivated by the same emotion: fear. On the other hand, if you make it safe enough, you can talk about almost anything and people wi1l listen. If you don't fear that you're being attacked or humiliated, you yourself can hear almost anything and not become defensive.
+
+Think about your own experience. Can you remember receiving really blistering feedback from someone at some point in your l i fe, but in this instance you didn't become defensive? Instead, you absorbed the feedback. You reflected on it. You allowed it to i n fluence you. If so, ask yourself why. Why in this instance were you able to absorb potentially threatening feedback so well? If you're like the rest of us, it's because you believed that the other person had your best interest in mind. In addition, you respected the other person's opinion. You felt safe receiving the feedback because you trusted the motives and ability of the other person. You didn't need to defend yourself from what was being said.
+
+On the other hand, if you don't feel safe, you can't take any feedback. It's as if the pool of meaning has a lid on it. "What do you mean I look good? Is that some kind of joke? Are you ribbing me?" When you don't feel safe, even well-intended comments are suspect.
+
+When it's unsafe, you start to go blind. By carefully watching for safety violations, not only can you see when dialogue is in danger, but you can also reengage your brain. As we've said before, when your emotions start cranking up, key brain functions start shutting down. Not only do you prepare to take flight, but your peripheral vision actually narrows. In fact, when you feel genuinely threatened, you can scarcely see beyond what's right in front of you. Similarly, when you feel the outcome of a conversation is being threatened, you have a hard time seeing beyond the point you're trying to make. By pulling yourself out of the content of an argument and watching for fear, you reengage your brain and your full vision returns.
+
+Don't let safety problems lead you astray. Let's add a note of caution. When others begin to feel unsafe, they start doing nasty things. Now, since they're feeling unsafe, you should be thinking to yourself: "Hey, they're feeling unsafe. I need to do something- maybe make it safer." That's what you should be thinking. Unfortunately, since others feel unsafe, they may be trying to make fun of you, insult you, or bowl you over with their arguments. This kind of aggressive behavior doesn't exactly bring out the diplomat in you. So instead of taking their attack as a sign that safety is at risk, you take it at its face-as an attack. " I'm under attack! " you think. Then you respond in kind. Or maybe you try to escape. Either way you're not dual-processing and then pulling out a skill to restore safety. Instead, you're becoming part of the problem as you get pulled into the fight.
+
+Imagine the magnitude of what we're suggesting here. We're asking you to recode silence and violence as signs that people are feeling unsafe. We're asking you to fight your natural tendency to respond in kind. We're asking you to undo years of practice, maybe even eons of genetic shaping that prod you to take flight or pick a fight (when under attack), and recode the stimulus. "Ah, that's a sign that the other person feels unsafe." And then what? Do something to make it safe. In the next chapter we'll explore how. For now, simply learn to look for safety and then be curious, not angry or frightened.
+
+##### Silence and Violence
+
+As people begin to feel unsafe, they start down one of two unhealthy paths. They move either to silence (withholding meaning from the pool) or to violence (trying to force meaning in the pool). That part we know. But let's add a little more detail. Just as a little knowledge of what to look for can tum blurry water into a brown trout, knowing a few of the common forms of silence and violence helps you see safety problems when they fi rst start to happen. That way you can step out, restore safety, and return to dialogue-before the damage is too great.
+
+Silence consists of any act to purposefully withhold information from the pool of meaning. It's almost always done as a means of avoiding potential problems, and it always restricts the flow of meaning. Methods range from playing verbal games to avoiding u person entirely. The three most common forms of silence are mas king. avoiding, and withdrawing.
+
+* Masking consists of understating or selectively showing our true opinions. Sarcasm, sugarcoating, and couching are some of the more popular forms.  
+
+* Avoiding involves steering completely away from senSItIve subjects. We talk, but without addressing the real issues.  
+
+* Withdrawing means pulling out of a conversation altogether. We either exit the conversation or exit the room.  
+
+Violence consists of any verbal strategy that attempts to convince, control, or compel others to your point of view. It violates safety by trying to force meaning into the pool. Methods range from name-calling and monologuing to making threats. The three most common forms are controlling, labeling, and attacking.
+
+* Controlling consists of coercing others to your way of thinking. It's done through either forcing your views on others or dominating the conversation. Methods include cutting others off, overstating your facts, speaking in absolutes, changing subjects, or using directive questions to control the conversation.
+
+* Labeling is putting a label on people or ideas so we can dismiss them under a general stereotype or category .  
+
+* Attacking speaks for itself. You've moved from winning the argument to making the person suffer. Tactics include belittling and threatening.
+
+##### look for Your Style Under Stress
+
+Let's say you've been watching for both content and conditions! You're paying special attention to when a conversation turns crucial. To catch this important moment, you're looking for signs that safety is at risk. As safety is violated, you even know to watch for various forms of silence and violence. So are you now fully armed? Have you seen all there is to see?
+
+Actually, no. Perhaps the most difficult element to watch closely as you're madly dual-processing is your own behavior. Frankly, most people have trouble pulling themselves away from the tractor beam of the argument at hand. Then you've got the problem other people present as they employ all kinds of tactics. You've got to watch them like a hawk. It's little wonder that paying close attention to your own behavior tends to take a backseat. Besides, it's not like you can actually step out of your body and observe yourself. You're on the wrong side of your eyeballs.
+
+Low selfmonitors. The truth is, we all have trouble monitoring our own behavior at times. We usually lose any semblance of social sensitivity when we become so consumed with ideas and causes that we lose track of what we're doing. We try to bully our way through. We speak when we shouldn't. We do things that don't work-all in the name of a cause.
+
+### SUMMARY
+
+##### LEARN TO LOOK 
+
+When caught up in a crucial conversation, it's difficult to see exactly what's going on and why. When a discussion starts to become stressful, we often end up doing the exact opposite of what works. We tum to the less healthy components of our Style Under Stress.
+
+##### learn to look
+
+To break from this insidious cycle, Learn to Look.  
+
+* Learn to look at content and conditions.  
+* Look for when things become crucial.  
+* Learn to watch for safety problems.  
+* Look to see if others are moving toward silence or violence.  
+* Look for outbreaks of your Style Under Stress.  
+
+### Chapter 5
+
+> They had ltved together {or so many years that they mistook their arguments for conversation. -MARJOlUli KEllOGG
+
+##### Make I t Safe, How to Make It Safe to Talk about Almost Anything
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
