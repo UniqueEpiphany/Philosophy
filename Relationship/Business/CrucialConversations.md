@@ -161,13 +161,43 @@ Those offering up a Sucker's Choice either don't think of a third (and healthy) 
 
 ##### Open You rself to Change
 
+In summary, Sucker's Choices are simplistic tradeoffs that keep us r rom thinking creatively of ways to get to dialogue, and t hat justify our silly games. 
 
+##### Search for the Elusive _And_
 
+The best at dialogue refuse Sucker's Choices by setting up new choices. They present themselves with tougher questionsquestions that turn the either/or choice into a search for the allimportant and ever-elusive and. (It is an endangered species, you know.) Here's how this works. First, clarify what you really want. You've got a head start if you've already Started with Heart. If you know what you want for yourself, for others, and for the relationship, then you're in position to break out of the Sucker's Choice.
 
+_"What I want is for my husband to be more reliable. I'm tired of being let down by him when he makes commitments that I depend on."_
 
+Second, clarify what you really don't want. This is the key to framing the and question. Think of what you are afraid will happen to you if you back away from your current strategy of trying to win or stay safe. What bad thing will happen if you stop pushing so hard? Or if you don't try to escape? What horrible outcome makes game-playing an attractive and sensible option?
 
+_"What I don't want is to have a useless and heated conversation that creates bad feelings and doesn't lead to change."_
 
+Third, present your brain with a more complex problem. Finally, combine the two into an and question that forces you to search for more creative and productive options than silence and violence.
 
+_"How can I have a candid conversation with my husband about being more dependable and avoid creating bad feelings or wasting our time?"_
+
+##### SUMMARY
+
+START WITH H EART : Here's how people who are skilled at dialogue stay focused on their goals-particularly when the going gets tough.
+
+Work on Me First : Remember that the only person you can directly control is yourself.
+
+Focus on What You Really Want : When you find yourself moving toward silence or violencej stop and pay attention to your motives.
+
+* Ask yourself: "What does my behavior tell me about what my motives are?"  
+* Then, clarify what you really want. Ask yourself: "What do I want for myself? For others? For the relationship?"  
+* And finally, ask: "How would I behave if this were what I really wanted?"  
+
+Refuse the Sucker's Choice : As you consider what you want, notice when you start talking yourself into a Sucker's Choice.
+
+* Watch to see if you're telling yourself that you must choose between peace and honesty, between winning and losing, and so on.  
+* Break free of these Sucker's Choices by searching for the and.
+* Clarify what you don't want, add it to what you do want, and ask your brain to start searching for healthy options to bring you to dialogue.
+
+### Chapter 4
+
+> I have known a thousand scamps; but I never met one who considered himself so. Self-knowledge isn't so common. -OUiDA
 
 
 
