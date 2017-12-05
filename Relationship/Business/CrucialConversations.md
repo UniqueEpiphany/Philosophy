@@ -281,6 +281,119 @@ To break from this insidious cycle, Learn to Look.
 
 ##### Make I t Safe, How to Make It Safe to Talk about Almost Anything
 
+In these circumstances, the worst at dialogue do what both Jotham and Yvonne did. Like Jotham, they totally ignore the crying need for more safety. They say whatever is on their mindswith no regard for how it will be received. Or like Yvonne, they conclude the topic is completely unsafe and move to silence.
+
+The good realize that safety is at risk, but they fix it in exactly the wrong way. They try to make the subject more palatable by sugarcoating their message. "Oh, honey, I really want to be with you but I'm under a lot of pressure at work, and the stress makes i t hard for me to enjoy our time together. " They try to make things safer by watering down their content. This strategy, of l:ourse, avoids the real problem, and it never gets fixed.
+
+The best don't play games. They know that dialogue is the free flow of meaning-with no pretending, sugarcoating, or faking. So they do something completely different. They step out of the content of the conversation, make it safe, and then step back in.
+
+Once you've spotted safety problems, you can talk about the most challenging of topics by stepping out of the content and building enough safety that almost anything becomes discussable. For example: "Can we change gears for a minute? I'd like to talk about what happens when we're not romantically in sync. It would be good if we could both share what's working and what isn't. My goal isn't to make you feel guilty, and I certainly don't want to become defensive. What I'd really love is for us to come up with a solution that makes us both satisfied in our relationship."
+
+##### NOTICE WHICH CONDITION IS AT RISK
+
+Now, let's look at a couple of pieces that help us establish safetyeven when the topic is high risk, controversial, and emotional. The first step to building more safety is to understand which of the two conditions of safety is at risk. Each requires a different solution.
+
+##### Mutual Purpose ： Why Talking the First Place?
+
+Remember the last time someone gave you difficult feedback and you didn't become defensive? Say a friend said some things to you that most people might get upset over. In order for this person to be able to deliver the delicate message, you must have believed he or she cared about you, or about your goals and objectives. That means you trusted his or her purposes so you were willing to listen to some pretty tough feedback.
+
+Crucial conversations often go awry not because of the content of the conversation, but because others believe that the painful and pointed content means that you have a malicious intent. How can they feel safe when they believe you're out to do them harm? Soon, every word out of your mouth is suspect.
+
+Consequently, the first condition of safety is Mutual Purpose. Mutual Purpose means that others perceive that we are working toward a common outcome in the conversation, that we care about their goals, interests, and values. And vice versa. We believe they care about ours. Consequently, Mutual Purpose is the entry condition of dialogue. Find a shared goal and you have both a good reason and a healthy climate for talking.
+
+
+For example, if Jotham believes that Yvonne's purpose in raising this topic is to make him feel guilty or to get her way, this conversation is doomed from the outset. If he believes she really cares about making things better for him and herself, she may have a chance.
+
+Watch for signs that Mutual Purpose is at risk. How do we know when the safety problem we're seeing is due to a lack of Mutual Purpose? It's actually fairly easy to spot. First and foremost, when purpose is at risk, we end up in debate. When others start forcing their opinions into the pool of meaning, it's often because they figure that we're trying to win and they need to do the same. Other signs that purpose is at risk include defensiveness, hidden agendas (the silence form of fouled-up purpose), accusations, and circling back to the same topic. Here are some crucial questions to help us determine when Mutual Purpose is at risk:
+
+* Do others believe I care about their goals in this conversation?  
+* Do they trust my motives?  
+
+Remember the Mutual in Mutual Purpose. Just a word to the wise. Mutual Purpose is not a technique. To succeed in crucial conversations, we must really care about the interests of othersnot jus t our own . The purpose has to be truly mutual. If our goal is to get our way or manipulate others, it will quickly become apparent, safety will be destroyed, and we'll be back to silence and violence in no time. Before you begin, examine your motives. Ask yourself the Start with Heart questions:
+
+* What do I want for me?  
+* What do I want for others?  
+* What do I want for the relationship?  
+
+Look for the mutuality. Let's see how Mutual Purpose applies to a tough example-one where, at first glance, it might appear as if your purpose is to make things better for yourself. How can you find Mutual Purpose in this? Let's say you've got a boss who frequently fails to keep commitments. How could you tell the boss you don't trust him? Surely there's no way to say this without the boss becoming defensive or vengeful, because he knows that your goal is merely to make your life better.
+
+To avoid disaster, find a Mutual Purpose that would be so motivating to the boss that he'd want to hear your concerns . If your only reason for approaching the boss is to get what you want, the boss will hear you as critical and selfish-which is what you are. On the other hand, if you try to see the other person's point of view, you can often find a way to draw the other person willingly into even very sensitive conversations. For example, if the boss's behavior is causing you to miss deadlines he cares about, or incur costs he frets over, or lose productivity that he worries about, then you're onto a possible Mutual Purpose.
+
+Imagine raising the topic this way: "I've got some ideas for how I can be much more reliable and even reduce costs by a few thousand dollars in preparing the report each month. It's going to be a bit of a sensitive conversation-but I think it will help a great deal if we can talk about it."
+
+##### Mutual Respect : Will We Be Able to Remain in Dialogue?
+
+While it's true that there's no reason to enter a crucial conversaM tion if you don't have Mutual Purpose, it's equally true that you can't stay in the conversation if you don't maintain Mutual Respect. Mutual Respect is the continuance condition of dialogue. As people perceive that others don't respect them, the conversation immediately becomes unsafe and dialogue comes to a screeching halt.
+
+Why? Because respect is like air. If you take it away, it's all people can think about. The instant people perceive disrespect in a conversation, the interaction is no longer about the origi· nal purpose-it is now about defending dignity.
+
+For example, you're talking with a group of supervisors about a complicated quality problem. You really want to see the problem resolved once and for all. Your job depends on it. Unfortunately, you also think the supervisors are overpaid and underqualified. You firmly believe that not only are they in over their heads, but they do stupid things all the time. Some of them even act unethically.
+
+As the supervisors throw out ideas, you roll your eyes. The dis .. respect you carry in your head creeps out in one unfortunate ges· ture. And it's all over. What happens to the conversation despite the fact that you still share a common objective? It tanks. They take shots at your proposals. You add insulting adjectives in describing theirs. As attention turns to scoring points, everyone loses. Your Mutual Purpose suffers for a lack of Mutual Respect.
+
+Telltale signs. To spot when respect is violated and safety takes a turn south, watch for signs that people are defending their dignity. Emotions are the key. When people feel disrespected, they become highly charged. Their emotions tum from fear to anger. 
+
+Then they resort to pouting, name-calling, yelling, and making threats. Ask the following question to determine when Mutual Respect is at risk: Do others believe I respect them?
+
+Can You Respect People You Don't Respect?  
+
+Some people fear they'll never be able to maintain Mutual Purpose or Mutual Respect with certain individuals or in certain circumstances. How, they wonder, can they share the same purpose with people who come from completely different backgrounds or whose morals or values differ from theirs? What do you do, for example, if you're upset because another person has let you down? And if this has repeatedly happened, how can you respect a person who is so poorly motivated and selfish?
+
+Yvonne is struggling with this exact point. There are times when she doesn't even like Jotham. She sees him as whiny and selfcentered. How can you speak respectfully with someone like that?  
+
+Dialogue truly would be doomed if we had to share every objective or respect every element of another person's character before we could talk. If this were the case, we'd all be mute. We can, however, stay in dialogue by finding a way to honor and regard another person's basic humanity. In essence, feelings of disrespect often come when we dwell on how others are different from ourselves. We can counteract these feelings by looking for ways we are similar. Without excusing their behavior, we try to sympathize, even empathize, with them.
+
+A rather clever person once hinted how to do this in the form of a prayer-"Lord, help me forgive those who sin differently than I." When we recognize that we all have weaknesses, it's easier to find a way to respect others. When we do this, we feel a kinship, a sense of mutuality between ourselves and even the thorniest of people. It is this sense of kinship and connection to others that motivates us to enter tough conversations, and it eventually enables us to stay in dialogue with virtually anyone.  
+
+Consider the following example. A manufacturing company has been out on strike for over six months. Finally, the union agrees to return to work, but the represented employees have to sign a contract that is actually worse than what they were originally demanding. The first day back it's clear that although people will work, they won't do so with a smile and a spring in their step. Everyone is furious. How are people ever going to move ahead?  
+
+Concerned that although the strike is over, the battle isn't, a manager asks one of the authors to lend a hand. So he meets with the two groups of leaders (both managers and union heads) and asks them to do one thing. Each group is to go into a separate room and write out its goals for the company on flip-chart-sized paper. For two hours each group feverishly lays out what it wants in the future and then tapes the lists to the wall. When they finish their assignment, the groups then swap places with the goal of finding anything-maybe just a morsel-but anything they might have in common.  
+
+After a few minutes the two groups return to the training room. They're positively stunned. It was as if they had written the exact same lists. They didn't merely share the shadow of an idea or two. Their aspirations were nearly identical. All wanted a profitable company, stable and rewarding jobs, high-quality products, and a positive impact on the community. Given a chance to speak freely and without fear of attack, each group laid out not simply what it wanted, but what virtually every person wanted.  
+
+This experience caused each group to seriously question how it had seen the other side. The groups began to see others as morc similar to themselves. They realized the petty and political tactics thc others had used were embarrassingly similar to the ones they themselves had employed. The "sins" of others were different from their own more because of the role they played than because of a fundamental blight on their character. They restored Mutual Respect, and dialogue replaced silence and violence for the first time in decades .  
+
+##### WHAT TO DO ONCE YOU STEP OUT
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
