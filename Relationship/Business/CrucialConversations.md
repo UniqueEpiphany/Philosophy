@@ -382,10 +382,65 @@ Use Contrasting for prevention or first aid. Contrasting is useful both as a pre
 
 When people misunderstand and you start arguing over the misunderstanding, stop. Use Contrasting. Explain what you don't mean until you've restored safety. Then return to the conversation. Safety first.
 
-##### You Try
+##### CRIB TO GET TO MUTUAL PURPOSE
 
+The worst at dialogue either ignore the problem and push ahead or roll over and let others have their way. They opt for either competition or submission. Both strategies end up making winners and losers, and the problem continues long beyond the initial conversation.
 
+The best at dialogue use four skills to look for a Mutual Purpose. The four skills they use form the acronym __CRIB__ .
 
+##### Commit to Seek Mutual Purpose
+
+As is true with most dialogue skills, if you want to get back to dialogue, you have to Start with Heart. In this case, you have to agree to agree. To be successful, we have to stop using silence or violence to compel others to our view. We must even surrender false dialogue, where we pretend to have Mutual Purpose (calmly arguing our side until the other person gives in) . We Start with Heart by committing to stay in the conversation until we come up with a solution that serves a purpose we both share.
+
+This can be tough. To stop arguing, we have to suspend our bel ief that our choice is the absolute best and only one, and that we' l l never be happy until we get exactly what we currently wan t . We have to open our mind to the fact that maybe, just maybe, there is a different choice out there-one that suits everyone.
+
+We also have to be willing to verbalize this commitment even when our partner seems committed to winning. We act on faith that our partner is stuck in silence or violence because he or she feels unsafe. We assume that if we build more safety-by demonstrating our commitment to finding a Mutual Purposethe other person will feel more confident that dialogue could be a productive avenue.
+
+So next time you find yourself stuck in a battle of wills, try this amazingly powerful but simple skill. Step out of the content of the struggle and make it safe. Simply say, "It seems like we're both trying to force our view. I commit to stay in this discussion until we have a solution both of us are happy with." Then watch whether safety takes a turn for the better .
+
+##### Recognize the Purpose behind the Strategy
+
+Wanting to come up with a shared goal is a wonderful first step, but it's not enough. Once we've had a change of heart, we need to change our strategy. Here's the problem we have to fix: When we find ourselves at an impasse, it's because we're asking for one thing and the other person is asking for something else. We think we'll never find a way out because we equate what we're asking for with what we want. In truth, what we're asking for is the strategy we're suggesting to get what we want. We confuse wants or purpose with strategies. That's the problem.
+
+##### Invent a Mutual Purpose
+
+Sometimes when we recognize the purposes behind our strategies, we discover that we actually have compatible goals. From there you simply come up with common strategies. But we're not always so lucky. For example, you find out that your genuine wants and goals cannot be served except at the expense of the other person's. I n this case you cannot discover a Mutual Purpose, so you must actively invent one.
+
+To invent a Mutual Purpose, move to more encompassing goals. Find an objective that is more meaningful or more rewarding than the ones that divide the various sides . For instance, you and your spouse may not agree on whether or not you should take the promotion, but you can agree that the needs of your relationship and the children come before career aspirations . By focusing on higher and longer-term goals, you can find a way to transcend short-term compromises, build Mutual Purpose, and get to dialogue.
+
+##### Brainstorm New Strategies
+
+Once you've built safety by finding a shared purpose, you should now have enough safety to return to the content of the conversation. It's time to step back into the dialogue and brainstorm strategies that meet everyone's needs . If you've committed to finding something everyone can agree on, and surfaced what you really want, you'll no longer be spending your energy on unproductive conflict. Instead, you'll be actively coming up with options that can serve everyone.
+
+Suspend judgment and think outside the box for new alternatives . Can you find a way to work in a job that is local and still meets your career goals? Is this job with this company the only thing that will make you happy? Is a move really necessary in this new job? Is there another community that could offer your family the same benefits? If you're not willing to give creativity a try, it'll be impossible for you to jointly come up with a mutually acceptable option. If you are, the sky's the limit.
+
+##### CRIB to Get to Mutual Pu rpose
+
+* Commit to seek Mutual Purpose. Make a unilateral public commitment to stay in the conversation until you come up with something that serves everyone.  
+* Recognize the purpose behind the strategy. Ask people why they want what they're pushing for. Separate what they're demanding from the purpose it serves .  
+* Invent a Mutual Purpose. If after clarifying everyone's purposes you are still at odds, see if you can invent a higher or longer-term purpose that is more motivating than the ones that keep you in conflict.    
+* Brainstorm new strategies. With a clear Mutual Purpose, you can join forces in searching for a solution that serves everyone.  
+
+### SUMMARY
+
+When others move to silence or violence, step out of the conversation and Make It Safe. When safety is restored, go back to the issue at hand and continue the dialogue.  
+
+Decide Which Condition of Safety Is at Risk   
+
+* Mutual Purpose. Do others believe you care about their goals in this conversation? Do they trust your motives?   
+* Mutual Respect. Do others believe you respect them?   
+
+Apologize When Appropriate : When you've clearly violated respect, apologize.  
+
+Contrast to Fix Misunderstanding : When others misunderstand either your purpose or your intent, use Contrasting. Start with what you don 't intend or mean. Then explain what you do intend or mean.  
+
+CRIB to Get to Mutual Purpose 
+
+When you are at cross-purposes, use four skills to get back to Mutual Purpose:     
+* Commit to seek Mutual Purpose.       
+* Recognize the purpose behind the strategy.     
+* Invent a Mutual Purpose.   
+* Brainstorm new strategies.   
 
 
 
