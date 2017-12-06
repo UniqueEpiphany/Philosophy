@@ -353,10 +353,36 @@ After a few minutes the two groups return to the training room. They're positive
 
 This experience caused each group to seriously question how it had seen the other side. The groups began to see others as morc similar to themselves. They realized the petty and political tactics thc others had used were embarrassingly similar to the ones they themselves had employed. The "sins" of others were different from their own more because of the role they played than because of a fundamental blight on their character. They restored Mutual Respect, and dialogue replaced silence and violence for the first time in decades .  
 
-##### WHAT TO DO ONCE YOU STEP OUT
+##### Apologize When Appropriate
 
+When you've made a mistake that has hurt others (e.g., you didn't call the team) , start with an apology. An apology is a statement that sincerely expresses your sorrow for your role in causing-or at least not preventing-pain or difficulty to others.
 
+Now, an apology isn't really an apology unless you experience a change in heart. To offer a sincere apology, your motives have to change. You have to give up saving face, being right, or winning in order to focus on what you really want. You have to sacrifice a bit of your ego by admitting your error. But like many sacrifices, when you give up something you value, you're rewarded with something even more valuable-healthy dialogue and better results. Then watch to see if this sincere show of respect has helped restore safety. If it has, you can now explain the details of what happened. If it hasn't, you'll need to use one of the more advanced skills that follow in the next few pages. In any case, first make it safe; then return to the issue.
 
+When your behavior has given someone clear cause to doubt your respect or commitment to Mutual Purpose, your conversation will end up in silly game -playing and frustrating misunderstandings until you offer a sincere apology.
+
+##### Contrast to Fix Misunderstanding
+
+Sometimes others feel disrespected during crucial conversations even though we haven't done anything disrespectful. Sure, there are times when respect gets violated because we behave in clearly hurtful ways. But just as often, the insult is entirely unintended. 
+
+The same can happen with Mutual Purpose. You can start by innocently sharing your views, but the other person believes your intention is to beat him or her up or coerce him or her into accepting your opinion. Clearly an apology is not appropriate in these circumstances. It would be disingenuous to admit you were wrong when you weren't. How, then, can you rebuild Mutual Purpose or Mutual Respect in order to make it safe to get back to dialogue?
+
+When others misinterpret either your purpose or your intent, step out of the argument and rebuild safety by using a skill called __Contrasting__.
+
+Contrasting is a don'tldo statement that: 
+
+* Addresses others' concerns that you don't respect them or that you have a malicious purpose (the don 't part) .  
+* Confirms your respect or clarifies your real purpose (the do part).  
+
+Contrasting is not apologizing. It's important to understand that Contrasting is not apologizing. It is not a way of taking back something we've said that hurt others' feelings. Rather, it is a way of ensuring what we said didn't hurt more than it should have.
+
+Con trasting provides context and proportion . When we're in the middle of a touchy conversation, sometimes others hear what we're saying as bigger or worse than we intend.
+
+Use Contrasting for prevention or first aid. Contrasting is useful both as a prevention and as first aid for safety problems. So far our examples have been of the first-aid type. Someone has taken something wrong, and we've intervened to clarify our true purpose or meaning. When we're aware that something we're about to drop into the pool of meaning could create a splash of defensiveness, we use Contrasting to bolster safety-even before we see others going to either silence or violence.
+
+When people misunderstand and you start arguing over the misunderstanding, stop. Use Contrasting. Explain what you don't mean until you've restored safety. Then return to the conversation. Safety first.
+
+##### You Try
 
 
 
