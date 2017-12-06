@@ -442,7 +442,9 @@ When you are at cross-purposes, use four skills to get back to Mutual Purpose:
 * Invent a Mutual Purpose.   
 * Brainstorm new strategies.   
 
+# Chapter 6
 
+__Master My Stories: How to Stay in Dialogue When You're Angr}'t Scared, or Hurt.__
 
 
 
