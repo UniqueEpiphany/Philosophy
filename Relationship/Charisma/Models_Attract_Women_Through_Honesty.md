@@ -1073,5 +1073,21 @@ It wasn’t until I became aware of this pattern that I was able to start breaki
 
 ### You Are Not a Victim
 
+I believe strongly in taking responsibility for everything that happens to you in your life. Our minds are always looking 
+for ways to avoid pain and failure and rejection, and so they constantly churn out rationalizations to keep us impeccable; it’s them who fucked up, not us. We're fine. We did everything right. It's that fucked up world's fault we're not happy.
+Blame is yet another form of neediness. It’s prioritizing others over yourself. As long as it’s their fault, then you don’t have to make yourself vulnerable.
 
+But when you practice taking responsibility for everything that happens in your life, you stop blaming others. It becomes less a question of blame and more a question of sacrifice. It’s no longer their fault that you’re still single because they’re all cold bitches, but now it’s your fault and a question of whether you’re willing to sacrifice the extra effort or not to find a woman who isn’t a cold bitch. Taking responsibility and morphing blame into sacrifice empowers you. It puts the ball in your court and returns you to the healthy reality that the only person in this world who determines your success and failure is you.
+
+### Sexual Motivation
+
+Napoleon Hill wrote a famous section in his classic work Think and Grow Rich called “Sexual Transfiguration.” Hill noticed and theorized that extremely successful men also had extremely high sex drives. And not only did they have very high sex drives, but they also channeled this sexual energy into their work and their accomplishments. Often they would abstain from sex or masturbation for long periods of time and would, therefore, feel more energized.
+
+Science is starting to back this up. Orgasms, or more accurately, ejaculation in men, actually causes a depletion of various hormones and endorphins which often lead to useful behaviors as well as motivation.
+
+Men who have masturbated constantly since adolescence often masturbate so hard and furiously that they desensitize their penis to realistic scenarios. When you masturbate three times a day for years straight, you often have to grip yourself very hard and rub furiously to get off. This can often lead to sexual issues and impotence when a man actually does get into bed with a woman. This is because vaginas are soft, they’re wet, and the sensations they give you are subtle. Your iron-fisted grip does a horrible job of preparing you for the warm lady love.
+
+# Chapter 10
+
+### How To Overcome Anxiety
 
