@@ -1091,3 +1091,117 @@ Men who have masturbated constantly since adolescence often masturbate so hard a
 
 ### How To Overcome Anxiety
 
+Think about it. Why do women spend so much time and effort on their appearance? Why do they go to singles’ bars and join dating sites and give blind dates a try? They don’t do it so that they can revel in rejecting a bunch of guys. They’re just as lonely and frustrated as we are. They want to meet a man. But not just any man, a great man — a man who is confident, charming, fun, and interesting. A man who is non-needy, who is vulnerable, and who will honestly express himself to her.
+
+She wants you to be that man. She’s secretly rooting for you. She doesn’t want to reject you. Every time a new man walks up to her, she’s secretly saying to herself, “Please, please, please be the man. Be the attractive man that I can’t say no to.” And then he nervously stutters around buying her a drink and makes uncomfortable jokes about the weather and she’s back to that horribly uncomfortable position of having to reject him again.
+
+Other times it doesn’t even get that far. It’s obvious before he even opens his mouth that it’s game over. He’s dressed like a clown or hasn’t combed his hair in three months, or he’s too drunk to even look at her directly.
+
+It’s because you didn’t give her that feeling. You didn’t make her spin and fall and laugh and forget where she was or who she was with. That’s what she goes out looking for: the man who can make her feel more alive.
+
+The next time you make your move, when she sees you coming — and trust me, she usually sees you coming — know that she’s already rooting for you. Secretly, she wants you to succeed as much as you do. And for a moment, she’s your biggest fan.
+
+And your role as a man is to take action. It’s all on you. It’s always on you. You move things forward.
+
+And this is where the vast majority of men falter. An action as simple as opening your mouth, moving your feet in the right direction, or picking up the phone — they simply don’t do it. The fear and rationalizations mentioned in the previous chapter are too large. It feels too overwhelming. And nothing gets done.
+
+And ultimately, no matter how much you read, how much you study, how much you watch about dating and attracting women, if you’re unable to take action, you will get nowhere.
+
+The idea was that if you had a crippling fear of approaching women, then you sign up for a “boot camp” or program where a coach takes you out to a bar and more or less yells at you until you approach 25 women in one night. What you say and what happens is all over the place, but at least you’re getting off your ass and doing something.
+
+The problem with the overload method of taking action is that it’s short-term and doesn’t create a lasting habit. There’s a simpler and less stressful method for achieving long-term results over your anxieties.
+
+### The Guide to Overcoming Your Anxiety
+
+In Buddhism, there’s a saying, “What you resist will persist.” And it’s true in this case as well.
+
+The proper way to handle your fear and your anxiety is to accept it, recognize that it’s normal and a part of who you are, and to not even try to hide it from the woman you’re meeting.
+
+Psychological research actually shows that people perform better at activities under a certain amount of anxiety. In fact, what matters isn’t the anxiety itself, but the person’s confidence in their own ability to perform whatever action they’re anxious about.
+
+So it’s less about the anxiety and more about how competent you feel you are. The less competent you feel, the more the anxiety will hinder you, the more confident you are in your ability, the more the anxiety will help you.
+
+The same is true with our fears.
+
+The way to attack anxieties is through incremental, consistent exposure. Not single, extreme exposure.
+
+Find something easy, but repeat it regularly for a while, until it doesn’t feel difficult anymore.
+
+Slowly work up until you’re able to approach women by telling them you think they’re attractive and asking them out on a date. You’ll be surprised how quickly you can get comfortable doing this.
+
+In fact, if you’re like most guys and stick with it, then you’ll begin to get hooked to the adrenaline rush and actually enjoy the butterflies you get when you approach a new woman.
+
+Eventually, you’ll be able to approach any woman in any circumstance and express your interest in her without fear, without worrying about what to say or what line to use.
+
+And you can apply this to all sorts of situations: getting physical with women, emailing women online, calling phone numbers, sexual humor, conversations with women, etc., etc.
+
+It’s just a matter of knowing how to structure your exposure.
+
+Get creative. Other sticking points this method can be applied to:
+
+* Stalling out in conversation. Being comfortable talking about yourself.  
+* Calling girls and asking them out on dates.  
+* Going for sex once you’ve been out on a date with a girl.  
+* Flirting and teasing women.
+* Showing direct interest. Stating that you’re attracted to them.
+
+### Courage and Boldness
+
+Feeling fear and acting despite it builds courage. Anytime you’re afraid to do something and feel some invisible force holding you back, yet you push through it anyway, you’re building courage within yourself.
+
+Courage is a habit. Courage is a form of discipline. It’s taking a certain action even though you feel like doing something else. The difference here is that courage involves acting against fear, whereas discipline involves acting against laziness or fatigue.
+
+Courage is built like a muscle. The stair-stepped exercises in the previous section are designed to progressively build your courage. The more courage you build, the more you’ll be capable of bold actions. Bold actions require a lot of vulnerability and build non-neediness.
+
+The bolder your action, the greater attraction you’re going to create. The bolder the action, the more vulnerability you show, and the more you polarize responses.
+
+If you walk around and ask women for the time, you are not polarizing them very much. Most of them will give you the time. The worst rejection you’ll ever get may be, “Oh sorry, I don’t have a watch,” or something similar.
+
+But if you walk around and ask women on dates, you’re going to get polarized reactions — nervous and excited yes’s, and tense and reserved no’s. Or maybe a few angry no’s. If you go even further and try to kiss a woman at an unexpected time, you’re either going to get a very enthusiastic yes or an enthusiastic no.
+
+The point is: greater boldness leads to greater polarization.
+
+This is yet another argument for behaving in an assertive manner. This is also why one of my mantras that I tell men is, “Always err on the side of assertiveness.
+
+Whenever you’re in doubt of what you should do, err on the side of assertiveness. Choose the bolder action. Because if you wait around for the safer and less bold opportunity to make a move on her, chances are the attraction will be less or may even dwindle.
+
+But bold behavior by itself will only go so far. Boldness must be molded by charismatic and efficient communication. Just behaving recklessly and will attract some women to you, and will give you sexual opportunities (particularly in party environments), but without communicating in a charming and interesting manner, and without being aware of social norms, it’s unlikely you’ll get many women to stick around, and your relationships will not be that enjoyable.
+
+You can build up an incredibly attractive lifestyle and persona, focus on the proper demographic, act boldly and pursue women shamelessly, but if you can’t communicate to them your intentions and your personality well, then it will be hard to maintain their interest for very long.
+
+# Part V: Honest Communication
+
+# Chapter 11
+
+### Your Intentions
+
+All the way back in Chapter 3, we talked about how vulnerability only holds weight when it’s communicated unconditionally — that is, when you compliment a woman or express yourself, you’re not doing it with an ulterior motive, you’re simply expressing yourself.
+
+In this chapter, I’d like to take that idea further.
+
+Men mostly communicate through facts, stories, and data. We discuss sports statistics, how we fixed our car last weekend, and where we plan on going next month. If a man says, “I’ll see you at 6 PM,” he typically means it literally. If a man tells you that he used to be the best basketball player at his college, you take it at face value, even if he may be exaggerating a little bit. If a man says he dislikes you, then it means he’s not your friend anymore and you move on.
+
+Women communicate more in feelings and, more specifically, through intentions. Sure, they still pay attention to the facts and stories on the surface, but what’s actually communicated to them is the intention and feeling underneath.
+
+This is sub-communication.
+
+This is why your girlfriend can get upset and tell you she hates it when you spend time with your friends one night, and then the next night she insists you go to your weekly bowling league and not see any contradiction in her statements. On the first night, she felt like you weren’t paying enough attention to her. On the second, she felt secure with you and wants you to be happy. The issue wasn’t actually your friends, it was simply her feeling valued.
+
+Needless to say, this sort of stuff often confuses the hell out of men, often for an entire lifetime.
+
+Some dating advice tells men not to compliment a woman too early or too often. The reason for this is that most men who read dating advice have poor intentions: they’re needy and looking to validate themselves through sex or female affection. So when a man compliments a woman out of neediness, it’s going to make a woman feel uncomfortable and objectified.
+
+Now if a man compliments a woman out of genuine appreciation for her, she’s going to hear his intention and be genuinely appreciative of him as well.
+
+Teasing and flirting with women is another great example. Many men, when they first begin trying to flirt with women, will tease them or “neg” them. Ask yourself this, what’s the difference between a tease and an insult? Both are derogatory statements. Both often incorporate humor. So what’s the difference?
+
+Intention. Teasing is done with a fun and positive intention. Insults are done with a negative intention.
+
+Or what’s the difference between sharing yourself and bragging? Let’s say you are friends with a celebrity. What’s the difference between sharing your life experience with a woman (attractive) and bragging to her (unattractive)?
+
+Hopefully, you’re catching on by now: it’s intention. What is your intention? Are you trying to impress her (needy) and therefore bragging? Or are you sharing yourself (vulnerability) and therefore polarizing her?
+
+This relates directly back to what we talked about in Chapter 1 in regards to investment, neediness, and validation. A man who is extremely needy will have intentions dominated by seeking validation and approval and will therefore be unattractive regardless of just about anything he says. A man who is non-needy will have intentions dominated by vulnerability and will therefore be attractive regardless of what he says.
+
+### Creepiness
+
