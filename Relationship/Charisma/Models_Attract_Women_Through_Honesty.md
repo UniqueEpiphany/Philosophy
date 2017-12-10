@@ -1205,3 +1205,113 @@ This relates directly back to what we talked about in Chapter 1 in regards to in
 
 ### Creepiness
 
+The number one fear deterring men from openly expressing their sexual desires towards women is a fear of being perceived as “creepy.”
+
+Before we jump into what creepiness is exactly, and what women mean when they complain about it, I need to give the same type of painful-truth serum I gave for rejection:
+
+_There’s no such thing as a man who is adored by women who isn’t also creepy some of the time._
+
+The fact of life is that if you are a man who expresses his sexuality freely (and you should), some women, some of the time, are going to find you creepy. It’s simply unavoidable. No matter how cool, rich, good-looking and charming you are, at some point, somewhere a woman is going to be creeped out by you. Live with it.
+
+So as a wise friend of mine sometimes says, “Give yourself permission to be creepy.” Don’t try to be creepy. And definitely don’t walk around looking to intimidate women. Simply accept that sometimes, miscommunications happen, awkward situations occur, and things get misconstrued. Such is life. As long as you’re respectful in how you express yourself, there should never be a serious problem.
+
+There’s no other way. And look, it’s not the end of the world. There’s no Creepy Police who come and handcuff you and throw you in Creep prison where you’ll wait for you court date where you’re charged for being creepy in the third degree.
+
+Creepiness is one of these vague concepts that everyone knows, but no one can really put into words. If you ask women what creepiness is, they’ll give you roundabout answers and inevitably fall into examples of creepiness rather than an actual definition.
+
+Of course, their examples are all over the map and seem to have absolutely no rhyme or reason to them.
+
+(For what it’s worth, I asked a bunch of female friends this question and I got answers with examples of creepiness that spanned from “he had dainty hands” to “he grabbed me really hard on the arm for no reason,” to “putting too many smileys in text messages,” to “he looks at you in a funny way when he talks.” As is often the case, women are terrible authorities on why they like/dislike something, all they know is that they like/dislike it.)
+
+So, at the risk of sounding like a creep, allow me throw my hat in the ring and actually give a concrete definition for the phenomenon:
+
+_Creepiness is behaving in a way that makes a woman feel insecure sexually._
+
+The further you get out of line with your intentions, the more distrustful she will be of your actions and words. And the more distrustful she is, the more insecure she will feel and the creepier you become. For instance, if you approach a woman and stand there and talk about the weather, but you’re staring at her rack the whole time while licking your lips, then you will come across as creepy. Your actions and words are completely out of line with your intentions and she can see that.
+
+Even if you tell her honestly, “You have great tits,” you will be creepy. Not for lack of intention, but because she doesn’t know you and most women are not comfortable being sexual around men they don’t know. Trust takes time. She has to see that your actions line up with your intentions before she can feel comfortable exposing herself to you and making herself vulnerable.
+
+Women have a lot more to lose from expressing their sexuality than men do. They make babies. We don’t. They get raped and/or sexually assaulted at a startlingly high rate. We don’t. They have five thousands years of sexist cultural history making them feel like a slut. We don’t.
+
+The second you make them feel uncomfortable sexually is the second you become a creep and the second she’s finding an excuse to get away from you as fast as she can.
+
+This is why vulnerability is so huge. When you’re vulnerable around someone you don’t know, it elicits trust in them and they will become more vulnerable toward you in return. The more vulnerable a woman is willing to be around you, the less likely you will be to creep her out.
+
+(Caveat 1: Vulnerability is still subject to the right intentions. If you tell a girl a sob story for no other reason than to get her to feel sorry for you and sleep with you, then guess what, you’re still creepy!)
+
+(Caveat 2: Sex can be viewed as the ultimate act of vulnerability for a woman. The more vulnerable you make yourself around her — by leading, by sharing your intentions, by being honest — the more she will trust you and become vulnerable in return. Sex is a side effect of that mutual vulnerability.)
+
+Paradoxically, the way to interact with women in a vulnerable way and, therefore, the way to combat creepiness, is to accept that some women will find you creepy some of the time. Just as with rejection, the more you’re willing to risk it, the less it will happen.
+
+The more comfortable you are with women finding you creepy, and the more uninhibited and vulnerable your actions and words are around women, and the more aware and respectful you are of their interests and desires, the less likely they will be to find you creepy. The more reserved and closed up you are about your intentions, the more you attempt to manipulate her and mislead her about what you want and who you are, the more you disregard her feelings and actions toward you, the more likely you are to become creepy.
+
+Obviously, there are technical aspects of communication that affect this as well. Bad body language, strange conversation topics, uncalibrated humor, inappropriate touching — these things can all make you creepy even with the best of intentions. This is why I say that at some point you have to accept that you’re going to creep some women out and that’s OK. Because the alternative is to hide your sexuality and hope a woman comes to you — and well, we all know how well that works out.
+
+##### Sexual Tension
+
+Flirting is the opposite of creepiness. Flirting is expressing your sexuality in a way that makes a woman feel sexually secure.
+
+Sometimes the sexuality of your behavior is overt, sometimes it’s subtle, sometimes it’s implied. But when done correctly, it’s accepted and appreciated by women.
+
+If you research dating advice and pick up tips, you’ll find dozens and dozens of methods of “building attraction” with women. Some of the more popular ones include teasing, bantering, negging, cocky/funny, push/pull, qualification, statements of interest, false disqualifiers, roleplaying, leading and pacing, eliciting values, magic tricks, cold-reading, false takeaways, word games, hand games, betting and competition, etc.
+
+Chances are, you’ve read or are familiar with at least a few of these concepts. If you don’t know what most of them are, then good, don’t worry about it. No, I’m serious — don’t worry about it, because they all follow the same basic pattern.
+
+> Flirting is expressing your sexuality to a woman in a way that makes her feel secure expressing her sexuality back towards you.
+
+In a nutshell, what a lot of men refer to as “game” is their ability to flirt with women. How well can they express their sexuality to women with positive responses? If they can do it often, they have “game.”
+
+The tactics or strategies used (teasing, etc.) all do this in their own ways, but they all follow the same pattern. For the sake of time and space (and boredom), I’ll be grouping most methods of flirting into two different groups: teasing and boldness. Both teasing and bold types of flirting (whether it’s negging, false takeaways, or roleplaying) follow the same basic formula: they all involve breaking rapport in order to generate sexual tension.
+
+Scientific research shows that sexual tension builds when the uncertainty of potential sexual possibilities is presented in an interaction. For example, if I say something with implied sexual innuendo like, “Well, that’s cool you are into cats, maybe I can come over and play with your pussy for a while,” this generates sexual tension because, assuming she doesn’t throw her drink in my face or slap me, it leaves the possibility of a future sexual encounter on the table. It’s a story with no ending, the human brain wants to know what happens next. And in this case, what happens next is probably something sexual.
+
+Teasing type behaviors generate sexual tension because they generate uncertainty as to whether or not you’re actually interested in a woman. In the example above, depending on the context and situation, I could be totally joking and being facetious. Or I could be totally serious and masking my desires behind a thinly-veiled joke. She doesn’t know. And that’s what makes it so good. The uncertainty generates the tension.
+
+If you tease a woman about her hair, telling her she looks like ET with a perm, or that your grandmother once owned a wig like that, you accomplish sexual tension because you are sending mixed signals. Your intentions are sending a “Yes, I like you,” signal, while your words are sending a, “No, I “don’t,” signal. This generates uncertainty and, therefore, sexual tension.
+
+This is why most dating advice in western culture, to both men and women, encourages you to send mixed messages, “play hard to get,” or play games with one another. Sure, it distorts intentions, but it also generates uncertainty and therefore, sexual tension.
+
+But one can flirt by being clear with one’s intentions as well. One can state one’s sexual desires clearly or actually even move to make those sexual desires happen. It’s counterintuitive, but this can generate a lot of uncertainty and sexual tension as well.
+
+For instance, let’s say you meet a woman and just come right out and say, “I think you’re beautiful, I’d like to take you on a date.”
+
+A lot of men cringe at this idea. Needy men hate it because they think it will make them creepy. Narcissistic men hate it because they believe they’re giving their power away.
+
+But in reality, it’s one of the most powerful and practical things you can say. Not only is it vulnerable, as we’ve discussed at length, but it also builds far more sexual tension.
+
+But how? If she already knows you like her, how can it build tension? There’s no uncertainty.
+
+Oh, but there is. It’s just not immediately obvious. Observe:
+
+1. First of all, a direct statement like that is polarizing. So if a woman is not interested in you, she will let you know then and there. If she is interested in you, this bold statement will make her so excited that you will also know then and there. Either way, you win.
+
+2. Women are turned on by being desired, remember? They are aroused by men who perform bold behaviors towards them. So it turns her on.
+
+3. It also demonstrates that you are not needy, which makes you more attractive to her.
+
+4. So now we have an aroused woman who is interested, and an attractive man who is bold and vulnerable. And both have implicitly or explicitly suggested sexual interest. Suddenly this opens up all sorts of new questions and opportunities: What is going to happen next? He’s so bold and direct, I have no idea what he’ll say or do. Does he want to kiss me? Does he want to fuck me? Do I want to fuck him? I do and I don’t. I don’t know what to do. When is he going to touch me? What will it be like? Will I love it?”
+
+See, if a man is having an innocuous conversation with a bunch of small talk, there is never any uncertainty in the woman’s mind as to where things stand. The conversation is shallow and simple and so there’s no question as to why they’re talking or the significance of what they’re talking about.
+
+If a man begins to flirt with a woman by teasing her, then suddenly he adds a new dimension by creating uncertainty: Does he like me or not? Why is he flirting with me?
+
+But if a man goes the bold and vulnerable route, and is willing to risk rejection, he is rewarded by creating massive amounts of sexual tension, because in a single stroke you have transported the context away from, “What do we talk about next?” to “What will he say or do with me next?
+
+This is extremely powerful.
+
+Of course, this is often easier said than done. Flirting this way requires showing vulnerability, risking rejection, and/or potentially being creepy. And at first, you may flirt in needy and supplicant ways, repelling women even faster than you did when you were just plain and boring. But eventually, exposing yourself and your sexual desires will force you to be less invested, more confident, more dominant, and more attractive. The teasing will help by creating the perception of non-neediness, and the boldness will make women more and more receptive to your eventual sexual advances.
+
+But unlike fears of living an attractive lifestyle, flirting and expressing your sexuality requires communicating effectively. It requires competency at certain social behaviors. And social behaviors, like any other kind of behavior, aren’t simply picked up overnight. They must be built and honed through practice.
+
+##### Developing an Emotional Connection
+
+
+
+
+
+
+
+
+
+
+
