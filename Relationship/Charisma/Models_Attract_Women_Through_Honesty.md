@@ -1305,9 +1305,44 @@ But unlike fears of living an attractive lifestyle, flirting and expressing your
 
 ##### Developing an Emotional Connection
 
+Your ability to connect with a woman emotionally is proportional to how self-aware you are of your own emotional processes and motivations.
 
+As described in Chapter 2, self-awareness and vulnerability will cause you to behave in a less needy manner, they give her the chance to know the “real you,” to trust you, and to open her own emotions up to you.
 
+Ultimately, this is what most women want. If you look at romance novels — basically the female version of porn — they all follow more or less the exact same pattern: hard and rugged bad-boy type male hero is troubled but strong, and as he slowly opens up and shares his true emotions and desires with the heroine, she’s able to support him, to save him and ultimately fall in love with him. Of course, they live happily ever after.
 
+This is more or less the blueprint of seduction: a strong, high status, attractive exterior (lifestyle and looks), fearless, and able to open up and share your vulnerable side with her. Women get weak in the knees for this shit. And it’s not even conscious most of the time.
+
+All that’s required is a certain level of emotional self-awareness and vulnerability in your interactions.
+
+And let me tell you, emotional connections are powerful. Far more powerful than any sort of tactics or tricks you may learn in other books. When you connect with women emotionally, they really open up to you in ways that you can’t imagine, your interactions and relationships with them become these rich and unique experiences that can never be replicated, the sex is far better, and all mind games, flakes and ambivalence goes out the window.
+
+A lot of pick up and dating advice is what I call “attraction obsessed.” It has a constant, incessant harping on being the most attractive/alpha guy possible — usually by employing all sorts of tricks, games, tactics, techniques, manipulation and other falsehoods. Attraction obsession comes from a place of insecurity. It seeks validation. It’s needy behavior and, therefore, self-sabotaging in the long run.
+
+It's not about attraction. She's attracted to men all the time but doesn't sleep with any of them or date them. Women actually don't sleep with most men they're attracted to because they would feel slutty or cheap.
+
+Her feeling slutty or cheap isn't about an "Oh, I put out on a first date," thing. It's not about number of dates, hours spent together, or how many dinners you bought her.
+
+Feeling slutty is about sleeping with a man who doesn't care about her or who hasn’t connected with her. If she doesn't trust you or isn't 100% convinced that you really like her and care about her, then she's not going to do it. And if she does, then she’ll regret it and feel dirty.
+
+So how do you develop deep and lasting emotional connections with women, connections that will blow your mind and heart away as well as hers too? Connections that will give you some of the best nights and sex of your life?
+
+Here’s the basic pattern, and you should recognize a lot of overlap here with Chapter 2:
+
+* Becoming aware of your own emotions, motivations, and life story.   
+* Taking the lead by sharing those emotions, motivations, and life story first.  
+* Sharing first creates trust and encourages her to open up and share herself in return.  
+* Ideally, the more this goes on, the more personal the stories become and the deeper the emotions are by which you connect.  
+
+And the most important rule of emotional connection is to relate to feelings, not facts. Seduction is about feelings, not facts. This is why you can often meet a woman who shares a lot in common with you — same home town, same occupation, same interests, lives on the same street — and have no connection or chemistry whatsoever. But then you can meet a woman who has lived an entirely different life from you, but if you can relate to the emotional struggles and emotional realities that she’s gone through, you can connect deeply with her.
+
+Everybody on this planet shares a handful of universal emotional realities: ambition, shame, alienation, loneliness, achievement, regret, hardship, friendship, love, heartbreak. We’ve all experienced it. The facts change, the feelings are the same. I don’t care how shallow or dumb or weird or annoying she is, she has it somewhere in her. It’s your job to dig it out and connect with it. That’s where the gold is. That’s where the real magic happens. Challenge yourself to find it. Because once you do, you’ll never go back.
+
+And the biggest misconception about generating a strong emotional connection is that it obligates you to some sort of commitment. It doesn’t. Although it’s more likely to cause you two to want to commit to one another, a relationship commitment is an intellectual construct, emotional connection happens organically on an unconscious level.
+
+# Chapter 12
+
+##### How to Improve Your Flirting
 
 
 
