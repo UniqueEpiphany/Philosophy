@@ -1345,8 +1345,184 @@ And the biggest misconception about generating a strong emotional connection is 
 ##### How to Improve Your Flirting
 
 
+Sometimes, even if your intentions are in line and you’re expressing yourself openly, people won’t always necessarily perceive you correctly. Communication is always up for interpretation; therefore, there’s always going to be a chance that you’ll be misunderstood or people might make incorrect judgments about you. There’s also a good chance that you aren’t expressing yourself clearly or effectively.
 
+For instance, you may ask a girl out for coffee. But perhaps she’s inexperienced or comes from a conservative background, and so what is a clear statement of interest from you, appears to her as just an invitation for friendship.
 
+Or maybe you compliment a woman on her dress. But for whatever reason, your tonality, and facial expression aren’t clear and she thinks you’re being sarcastic. Maybe she’s insecure and very touchy about men complimenting her, so she responds negatively.
 
+In the long run, misunderstandings and miscommunications are unavoidable. No matter how clear and how charming you are there are always going to be women who misinterpret what you say to them as well as your intentions. This is a fact of life and something you have to get used to.
 
+But what we can control is how efficiently and openly we communicate by learning clear and effective communication skills. The better our communication skills, the more clearly we can express ourselves and show sexual interest. The more clearly we express ourselves and show sexual interest, the more likely we’ll be able to connect with women in a sexual and emotional way.
+
+It’s sad but true. There are often situations where a woman will be sexually interested in a man, but their failure to communicate their intentions to one another clearly will derail the entire interaction. There’s no excuse to let this happen.
+
+And as with all of the Three Fundamentals, you’ll find that clear communication will enhance other areas of your life — your professional relationships, your family relationships, your friendships, your networking abilities — just as much as it enhances your romantic relationships and your ability to meet and attract women.
+
+##### First Impressions
+
+First impressions are crucial. Studies show that we base the majority of our perception of people on the first few minutes we spend with them. This initial perception can extend and influence our relationship to the person for weeks or even months.
+
+If I look at all of the women I’ve dated seriously, just about all of them (I’d estimate 90% or so), it felt “on” within the first few minutes of the interaction. We clicked and that first impression led to a romantic and sexual relationship further down the line.
+
+The biggest misconception about first impressions is being overly concerned with what to say to a woman when you meet her. What you say to her when you first meet her is actually unimportant, and hopefully by this point in the book, I don’t have to explain why.
+
+> The exact words you say are far less important than your intentions and level of anxiety.
+
+Ninety percent of the time when I meet a new woman, I simply say, “Hi, I’m Mark.” I then follow it up with, “I wanted to meet you.” And if I’m feeling particularly bold, I’ll say, “I thought you were cute and wanted to meet you.”
+That’s it.
+
+You can ask a woman how her day is going, or say the most perceptive and witty thing to her in the first minutes, but her first impression is largely going to be based on how you present yourself (looks/lifestyle; Chapters 7 and 8), your level of anxiety (anxiety; Chapters 9 and 10), and your ability to communicate clearly. What actually comes out of your mouth is going to be forgotten or completely irrelevant within seconds.
+
+With that in mind, here are guidelines for making a good first impression: Do not startle or scare her when you approach her. This is possibly the only death knell for approaching women. If you startle her or scare her when she first meets you, in my experience, there is almost absolutely nothing you can do to recover. You’re immediately labeled “creepy” and she will do anything possible to get out of the situation. Even if she’s polite and talks for a minute, chances are she’s never going to open up and trust you.
+
+Typical ways guys startle or scare women upon the approach are by approaching them from behind (huge no-no), grabbing them violently, screaming at them, or saying something offensive or weird.
+
+When in doubt on how to approach a woman, simply walk up and introduce yourself and explain to her that you wanted to meet her. I know this sounds drab and boring. But remember, it’s not about entertaining her; it’s about being non-needy and expressing your genuine interest in her. During the day, I often preface the introduction by saying something like, “Excuse me, this is kind of random...” Also during the day, I usually tell them that I think they’re cute.
+
+In my experience, the fancier and more creative guys try to get with their opening lines, the more likely they are to a) say something weird and b) come off as needy. Think about it, if you sit around for 10 minutes trying to think of what to say to a girl so that she’ll like you, how is that ever not needy?
+
+She’ll sense this. In fact, it’s kind of amazing. Women really do seem to have a sixth sense about this stuff. I’ve noticed that the longer I hesitate and stare at a girl before I approach her, the more likely I am to be rejected. The best approaches I ever do are when I don’t think about it and I spontaneously just walk up and say hello.
+
+Don’t linger. If you linger and hover around her, it’s almost guaranteed to make the approach feel awkward and forced. Imagine a straight line between you and her, and when you’re ready to go, follow that straight line until you’re standing right in front of her. Don’t stand around and kick the dirt at your feet trying to work up the nerve right next to her.
+
+Smile. Always smile. Don’t smile like the Joker from the Batman movies smiles. But smile like you’re a nice, friendly person. A comfortable smile. Lean back. Stand up tall. Speak loudly yet clearly. Make strong eye contact. Introduce yourself and stick out your hand. Give a firm handshake. This is called being a confident human being.
+
+If you are getting many rejections right on the initial approach, then it’s one of the following three things:
+
+1. You’re presenting yourself poorly — i.e., you dress poorly, bad looks, bad style, bad body language.  
+2. Your intentions are off. You’re approaching for the wrong reasons. The wrong reasons include anything that is not, “She’s cute. I want to meet her.” That means, approaching for statistics, approaching for "practice,” approaching to impress your friends. Approaching because you want to live up to a bunch of crap you read on the internet. These are all the wrong reasons to approach. When you see a beautiful woman, you should be motivated by nothing but your desire to get to know her. That’s it. If you have trouble finding that motivation, refer back to the section on sexual anxiety in Chapter 9.
+3. You’re not following one of the guidelines above. You’re startling her. You’re trying too hard to be clever or interesting. Or you’re doing something technically wrong (not looking her in the eye, not smiling, etc.)
+
+And really that’s all the opener is trying to do: stop them and get them to talk to you for a second. It’s your conversation skills that get that second to turn into a minute and that minute to turn into an hour.
+
+##### Conversation Skills
+
+Developing conversation skills is a deep topic, and for the sake of this book, I’m only going to gloss over the most important aspects and the advice that’s easiest to implement.
+
+The topics that we’ll cover in this section are:
+
+* Using effective language  
+* Questions versus statements  
+* Creating endless conversation topics  
+* Storytelling  
+* Basics of emotional connection
+
+__Using Effective Language: This is the easiest “quick fix” that you can apply to your communication skills. Using effective language means saying what you mean with the fewest words possible while still maintaining your meaning and intent.__
+
+This is where being a good writer can actually help you become a good communicator. If you’re saying something in four sentences that could be said in one, say it in one. If you are saying something in ten words that can be said in four, say it in four.
+
+In conversation and communication quality always wins out over quantity. We would all rather have 30 seconds of amazing communication than 10 minutes of mediocre communication saying the same thing.
+
+__Questions versus Statements: Creating threads of conversation through statement is far more powerful than questions. This is because it assumes rapport and instantly makes conversations more personally.__
+
+For instance, if you’ve been talking to a woman at a bar for a few minutes, saying, “I love olives in my drink. When I was a kid I used to eat them straight out of the jar,” is far more interesting than, “Do you like olives in your drink?” and waiting for her response. In fact, that question is just plain weird. But that statement is interesting, and what many women would consider “cute.”
+
+Instead of incessant questioning, you want to develop a skill called cold reading. Cold reading is a skill where you’re able to intuitively “know” something about someone else without actually knowing it.
+
+It’s like being a psychic without the cheesiness.
+
+For our purposes, cold reading is just a way of creating interesting statements rather than asking questions for information. You don’t ask the question you want to know, but instead, you make a mild prediction.
+
+Instead of asking her a question about herself, you guess the answer to your question and then state it. Here are some examples:
+
+“Where are you from?” translates to: “You look like a California girl.”  
+“What do you do for work?” translates to: “You seem to be a creative person. I bet your job is interesting."  
+“How do you guys know each other?” translates to: “You guys look like you’ve been friends for a long time.”  
+
+In each situation, the statement makes an educated guess and engages the woman far more than any question will. Instead of asking her about herself, you’re telling her about herself. The only thing people love more than talking about themselves is hearing about themselves. But what if you’re wrong?
+
+That’s the best part! A lot of guys worry about cold reading because they’re afraid to state something incorrect. This is where human nature works in our favor.
+
+There’s no failing with cold reading. With every cold read, one of three things will happen:
+
+1. You’ll be wrong, and she’ll correct you.  
+2. You’ll be wrong, and she’ll ask you what made you think that.  
+3. You’ll be right, and she’ll freak out at how perceptive you are.  
+
+In the first result, she’ll basically just answer the question you based your cold read on and forget that you were wrong.
+
+In the second result, you’ll be wrong, but she’ll be so intrigued by your guess, that she’ll create a deeper conversation thread about what you observed about her. Later in the chapter, we’ll talk about the importance of creating the deepest threads possible.
+
+In the third result, the few times you get the cold read correct, she will most likely be surprised at how perceptive you are about her. This will generate a tidal wave of rapport immediately and impress her at the same time.
+
+You should cold read as much as possible. Any time you’re asking a question that requires a factual answer, take a stab at the answer instead of asking.
+
+Besides that, creating conversations out of statements protects you from what I call “blanking.” You know when you are talking to a woman and all the sudden the conversation dies and you have no idea what to say? You’re sitting there awkwardly and the more uncomfortable you feel, the harder it is to come up with something. Eventually, you blurt out something boring like, “So… where do you live?”
+
+Using statements can prevent this a great deal. Instead of fishing for a new conversation based on a generic question, you can simply comment about something or observe something. Never underestimate the power of non-sequiturs.
+
+These will sometimes come across as random. But that’s because they are — they’re whatever thoughts are popping into your head at the moment. It’s better to be random and interesting than predictable and boring. Don’t be afraid to just blurt something out.
+
+This works because unlike questions, statements require no investment from the other person. You can say whatever you want and there’s no implicit expectation for her to generate conversation as well.
+
+Speaking in statements in this fashion — to generate spontaneous conversation — is important in that it forces you to share yourself with her. When you simply ask a girl questions, you aren’t giving any information about yourself, so it’s harder for her to trust you or build rapport. But if you simply state a fact about yourself and then talk about it, you are now sharing yourself and giving her a chance to chime in with her input as well.
+
+The amazing thing about speaking in statements is if you do it correctly, she will start asking you questions. This may not seem like a big deal, but it actually reorients the entire interaction. As I mentioned earlier, whoever is asking the questions is sub-communicating a desire to learn more about the other, i.e., interest, i.e., they’re attracted to them. If she is constantly seeking information from you, you now have the power to control the interaction — you control the information and the conversation.
+
+__Endless Conversation Topics:__ “In every topic of conversation, there are countless opportunities to jump off onto other topics — there are countless word associations to be made.
+
+For instance, let’s assume you’re talking to a woman and she says, “I never liked that restaurant. I went there on my birthday last year, and I don’t remember anything past midnight. I woke up on my friend’s kitchen floor.”
+
+This is loaded with opportunities to take the conversation in new directions. You could relate and talk about any of the following:
+
+1. The restaurant she doesn’t like.  
+2. What you did on your last birthday.  
+3. The last time you got black out drunk.  
+4. A story about waking up somewhere unusual.  
+
+Any and all of these topics will be relevant and interesting to the conversation.
+
+If you don’t already do this, it’s a habit you need to ingrain in yourself — just as the comedians ingrain off-the-wall word associations.
+
+__Storytelling:__ Human beings, by default, are enrapt by stories, or more specifically, a story arc. Politicians use them to campaign, teachers use them to explain important concepts, comedians use them to make us laugh, and we use them constantly in our day-to-day interactions.
+
+But what you probably didn’t notice is that the best communicators you know are fantastic storytellers.
+
+Have you ever had a friend who would start telling you about something and it just seemed to go nowhere? Like, they’d start telling you about their trip to Chicago and after describing the hotel and maybe mentioning the concierge, the story just died?
+
+Or have you ever known someone who consistently makes jokes that don’t completely make sense, or fizzle out and aren’t funny?
+
+Or maybe you’re one of these people. Do people ever stop paying attention to you mid-story? Or do you have trouble making others laugh (intentionally, that is)?
+
+Chances are, these people (or you), aren’t following a strong story arc. For whatever reason, humans have evolved to be absolutely fascinated when information is communicated in a certain pattern. This is true of just about any culture and background.
+
+There are three main points of a story arc:
+
+Set Up: The set up is exactly that: you’re setting the scene or the context for what you’re about to say. It’s the foundation of what’s about to be told, and if you don’t set up properly, then your stories, jokes, and ideas will always seem to be random. People will consistently comment that you’re really random, weird, or “off the wall.”
+
+Content/Conflict: After setting up what you’re going to talk about, you get into the actual content. This can also be the “conflict” in your story. Whatever it is, it’s something that causes tension and expectancy. The content of your story needs to be intriguing and hook people into wanting to know what will happen next. If you don’t build much tension with the content of your stories, you will find people losing interest or get the feeling like you ramble on a lot.
+
+Resolution: The resolution releases the tension from the conflict or content. Resolutions can come in forms of punchlines (for jokes), conclusions (for ideas), or just closure for a generic story. People who don’t resolve their stories and ideas well will often get blank stares when they’re finished speaking, or people asking them, “Yeah, and…?” not realizing that the story is finished.
+
+In real life, people speak in more than sentences; they speak to each other in stories. So you’ll want to develop the ability to formulate entire stories around jump off points, as well as notice jump off points within entire stories.
+This is actually much easier than it sounds, and you probably do it naturally with your friends and family in a lot of situations. The idea is to just do it consistently and naturally and with anybody, including attractive women.
+
+Relating and Connecting: The final goal of a successful conversation is to actually make a personal connection with the woman you’re talking to.
+
+When you are talking to a woman, there are only two real subjects of conversation: her and you. Everything you speak about should be, in some way, revealing your identity to her or her identity to you.
+
+This uncovering of identity is what creates the sense of a “connection.” The greater the connection you create, the more she’ll want to spend time with you and vice-versa.
+
+Making a connection requires three steps: 
+
+1) being open about yourself,    
+2) getting her to be open about herself, and   
+3) relating to each other’s experiences.”  
+
+Most men feel a bit vulnerable when talking about these topics, especially to women. That’s the point.
+
+Be willing to share any part of yourself to anyone at any time and on any level. You have nothing to lose by sharing yourself. At the worst, she’ll reject you and, well, she’s going to reject you if all you do is talk about sports and your job anyway, so what’s the problem?
+
+What you’ll actually find is when you share something deeper and personal about yourself, it will be genuine and she’ll immediately respond to that by being genuine herself.
+
+Ideally, sharing these aspects of yourself will encourage her to share them in herself. You want to get her to talk about her passions, her ambitions, her best experiences and her most vulnerable experiences. These are the topics that define us as humans and make us unique — that is, different from the last 20 guys who talked to her.
+
+These are the topics of conversation that will make you stand out. Why? Because she knows you. Not your favorite sports team. Not the party you went to last week, but you.
+
+And when she knows you and remembers you, she’ll make sure to pick up the phone when you call and meet up with you again.
+
+In conclusion: When it comes to conversations, there’s a lot to cover. Reading this last section may have been overwhelming for you. If so, just remember: break it up into little chunks, practice one thing at a time.
+
+##### Humor
 
