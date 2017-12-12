@@ -1691,11 +1691,211 @@ Yes, once in a while you can get women buying you drinks and stuff — there are
 
 ##### Physicality and Sex
 
+One new conclusion in arousal research these days is that female arousal is somewhat narcissistic in nature. Women are turned on by being wanted, by being desired.
 
+My experience supports this as well. Those in the men’s dating advice industry have discovered over the past five years or so that the more assertively you pursue a woman, the more aroused she becomes. There’s something almost “magical” about an uninhibited physicality when being with a woman.
 
+Something as simple as taking a guy who usually stands there blabbering for hours about meteorology or something, if you take that same guy and have him put his arm around the woman he’s talking to or have him lightly touch her as if punctuating his points and jokes, this generates way more sexual tension.
 
+Indeed, sexuality, in the end, is all about movement and our bodies entwining themselves. Everything else is kind of just a means to reach that point.
 
+I’m going to say this point-blank: getting physical with women, and getting physical quickly and comfortably, is ultimately the difference between having a lot of female friends, and having a lot of girlfriends and dates.
 
+Being physical with women is by far the most integral piece of seduction and dating women. If you have it, you will constantly have options. If you don’t, you will spend a lot of time alone.
 
+I have a friend. He’s a decent-looking guy. He almost never approaches (except when he’s drunk). He’s awkward to talk to. He has a strange sense of humor. But he gets physical with women. He touches them early. He touches them often. And even if they don’t reciprocate or move away. He tries again. In other words, he’s always going for it.
 
+And you know what? He gets laid constantly. With hot women too.
 
+It’s amazing. I used to hang out with him and would watch him awkwardly stumble around conversations, drink a little too much, and awkwardly putting his arm around girls as the girls sat there with a look of confusion. I’d watch him and think to myself, “Oh man, what a disaster.”
+
+And then I’d come back 20 minutes later and he’d be making out with her. And then an hour later she’d be excitedly going home with him.
+
+He just has no inhibitions whatsoever about going for it. Unless the girl would clearly stop him or say “No!” he would always be going for it. And the women loved it. They loved his physicality and his raw sexual energy. It made them feel beautiful and sexy and it was exciting.
+
+(Ethical note here: if a woman clearly tells you to stop doing something, stop. Don’t take offense, but instead, ask her if she’s uncomfortable and/or why she’s uncomfortable. Often it’s not that she doesn’t like you, it’s just that you’re moving too fast for her. Always respect her boundaries and clarify as early as possible what she’s comfortable with and what her expectations are. Not only is this the vulnerable thing to do, it’s also the respectful thing to do.)
+
+Being physical with women is a necessary habit that most men who are poor with women never do. Most men are a bit shy and hesitant when it comes to “making moves:” touching, the first kiss, sexual touching, etc. Well, that needs to stop. From now on, you are a sexually assertive and dominant guy and you have no shame about it. We’ll also discover that women actually prefer you to be this way.
+
+There are two reasons for being physically assertive with women. The first is polarization. You want to establish whether she’s sexually interested in you as soon as you possibly can. The second reason is that being physical is bold and, therefore, a highly attractive form of flirting.
+
+Studies have shown that people being touched by somebody when they first meet them not only have a much higher probability of thinking favorably of them, but they also were shown to trust them quicker.
+
+So how do you touch a girl right off the bat?
+
+As you having a conversation with her, assuming she is Receptive, just lightly touch her on the arm, near the elbow. Don’t press hard or hold it, as that could startle her, but just a small brush or tap or light squeeze. Use your touching to punctuate the conversation, as if emphasizing a funny moment or the punchline of the joke. Think of touching as the exclamation marks or question marks of the dialogue.
+
+For instance, let’s say you make a clever joke and she begins to laugh really hard, you should put your hand on her arm to punctuate the emotion of the moment.
+
+The best way to touch is to integrate physicality into your conversation. For example, using games such as thumb wars, twirling her like a ballerina, or giving high fives are great ways to initiate physical contact. As the conversation goes on, the better things are going, the more you want to be touching and the more personal you want your touches to be.
+
+Your touching should happen in a progression. In general, you want to start on the outside of her body — her arms and legs — and slowly move closer into her body. Put your hand on her back as you move her to sit down with you, put your arm around her lower back as she leans against the bar next to you, etc. Later on, this progression will continue into intimacy: tickling, massages, and cuddling (or spooning). And from there it will continue on into kissing, petting, and becoming sexual.
+
+##### Signals Women Give
+
+Men are notoriously bad at recognizing “signals” women give them when they’re interested. In the courtship process, it’s always the man’s responsibility to take action and make the moves, and the woman’s responsibility to give him signals, telling him when to proceed and when to stop.
+
+Throughout this chapter, we will be discussing physically escalating with a woman. This involves touching her in sexual ways.
+
+As men, we’re kind of stuck in a weird place. Because on the one hand, we’re always expected to initiate and make the first move. But on the other, we’re supposed to respect a woman’s desires and right to her own body.
+
+This is why before proceeding with advice about getting sexual with women, I want to take a moment to list out the signals women give that indicate she is sexually interested in you. You should see these somewhat as invitations to proceed with them physically, although due to potential miscommunication, don’t make too many assumptions. What we’re looking for is a consistent stream of signals coming from her to you. Pre-approach signals mean she wants to talk to you. Conversational signals mean she wants to get closer to you physically. And escalation signals mean that she wants to get sexual with you.
+
+View these signals as green lights when they come up, but only to move to the next group of signals (i.e., just because a woman makes eye contact with you doesn’t mean she wants to fuck you right then and there, it just means she’s curious about talking to you.) Take it one step at a time, and remember, she always has the right to back out or change her mind at any moment.
+
+##### Pre-Approach Signals
+
+Non-Accidental Eye Contact: When in doubt, assume it’s not accidental. Humans are programmed to look at and focus on whatever they’re either curious about or what they find attractive. If she’s looking at you even 10% more than the average stranger, then she’s at least somewhat curious/interested in you. I make a point to approach every woman who makes non-accidental eye contact with me, and it serves me well.
+
+Smiling: If eye contact means she’s interested, this means “you better come talk to me!”
+
+She Approaches You: This goes without saying, although a lot of guys are so oblivious, they even miss this. If a woman approaches you, even if it’s to ask the time, about the weather, for directions, or whatever, chances are she has some interest in talking to you.
+
+Proximity: This one is subtle, but the more you work on your lifestyle, body language, and style, the more of these you will get. It’s when a woman places herself conspicuously near you when she doesn’t have to. For instance, let’s say you’re sitting on a bus and an attractive woman gets on. The entire bus is empty, yet she comes over and sits across from you. This could mean she wants you to talk to her. Some other examples are when a woman comes and stands near you in a store or shop looking at nothing in particular for a long amount of time.”
+
+##### Conversation Signals
+
+Excessive Smiling/Laughing: This is subjective and will require some judgment, but sometimes you will notice one girl smiling and laughing a lot more than others when you speak. Chances are she likes you.
+
+Flipping or Playing with Her Hair: Classic signal of flirtation and often done unconsciously.
+
+Eyes Dilate: Studies have shown our eyes dilate when we look at someone we’re attracted to. Hard to notice, especially in some nighttime scenario. But this gives her eyes a much bigger and wider look than normal, what you may call “big doe eyes.”
+
+Standing Closer to You Than Normal: self-explanatory. Pay attention to where she positions herself while talking to you. If it’s slightly within your bubble of personal space that probably indicates she’s interested in getting physical with you.
+
+Excessive Eye Contact: Same as excessive smiling. If she’s locked onto your gaze during a conversation, that means she’s very interested in what you have to say. Most people break eye contact very often, especially with people they just met. If she doesn’t, that means she’s interested in you.
+
+Prioritizes You: Another very subjective one. This can be very subtle. But it’s when her actions subtly show you that she prioritizes you over interacting with others. The classic example here is if you meet a girl at a bar and her friends come over and try to talk to her and she ignores her friends. Most women, if they don’t like you, will drop you like a hot potato when their friends come around. But if she ignores her friends or stays with you, that’s a clear indication that she likes you.
+
+##### Escalation Signals
+
+Isolates Herself with You: Oftentimes the most overt advances a woman will make won’t be in actually making a move (that’s your job), but they’ll actively work to put you in the easiest situation possible. Let’s say I’ve been hanging out with a woman at a small party for most of the night and she suddenly she says, “let’s take a walk around the block, it’s noisy in here,” she’s purposely isolating herself with me as much as possible. This typically means she wants to be kissed.
+
+Ditches Her Friends For You: Goes along with the above; it takes a lot for a woman to leave her friends behind for a guy, especially one she’s only known for a few hours or one night. If she does this, take it as a bright green light.
+
+Touches You: If she starts putting her hands on your arms or legs or is demonstrating (or reciprocating) any of the touching I described in the previous section, this is a clear signal: she is sexually interested in you and wants to be kissed.
+
+##### When To Go For the Kiss
+
+When it comes to kissing a woman, there’s an old adage amongst dating coaches: if you think you can kiss her, you probably could have ten minutes ago. We men are horrible at gauging a woman’s sexual desire and when she’s ready to move things forward.
+
+So, in general, it’s safe to assume that anytime you think you could kiss her, you probably already could have. Too many guys get hung up looking for “sign” after “sign” when women have been giving them signals all night. Think of it this way: it’s much better to try and kiss her and get rejected than to go the whole night without making a move and never knowing what would have been.
+
+So the rule of thumb is, when in doubt, go for it.
+
+If you go in for the kiss and she turns her head or doesn’t reciprocate, pull back and ask her how she’s feeling, if she likes you or if you’re moving too fast. Listen to her response, often women will want to kiss you but there’s something that’s worrying them or upsetting them or making them self-conscious. The best way to deal with this is through vulnerability and simply asking her to be honest with whatever the issue is.
+
+There are some women who don’t kiss in public places. They feel like it’s in bad taste and poor form. No matter how much they like you, they won’t do it.
+
+The same goes if she’s in front of a bunch of people she knows. If she’s standing right next to four of her co-workers, she’s probably not going to feel comfortable making out with you. Try moving her somewhere more private.
+Some notes on kissing well:
+
+* Don’t slobber all over her face.
+* Don’t jam your tongue down her throat. Heavy tongue has its place, but it’s usually in the bedroom when you guys are naked.  
+* Don’t peck her like she’s your grandmother.   
+* Don’t shove your face into hers or apply too much pressure. Kisses are sensual. Imagine you’re massaging her lips with yours.  
+
+A lot of kissing revolves around how you use your hands as well. Your hands should be roaming her body gently, caressing her back, gently holding her neck, pulling her hips into yours. One of my favorite things to do while making out with a girl is to grab her belt loops on her pants and pull her hips into mine.
+
+Don’t get ahead of yourself when you’re kissing. Too many men start making out with a woman and then immediately go into “OK, LET’S FUCK” mode where they practically start molesting her wherever they are and devouring her face.
+
+Cool it. Kissing is simply the gateway to greater and deeper intimacy. Enjoy it, play with it, relax into it.
+
+##### Moving Forward and Consent
+
+So you’ve kissed her. Now what?
+
+Assuming you’re in a discrete place, you’ve both gotten to know each other, and you’re both “fuck yes” about going further, then it’s time to escalate things towards sex.
+
+Usually, the place to touch a woman that indicates you’re ready for sex and that isn’t acceptable unless she is as well are her breasts. If your hands find your way to them and she’s into it, then this is usually an indication that things are going to go further.
+
+But believe it or not, women don’t just want to drop their pants and screw right there on the spot. Whereas men are like a microwave that you just press a button and the food is ready to go, women are like an oven. They need to be warmed up, pre-heated even. Remember, female arousal is primarily psychological. Therefore, there needs to be a sense of build-up to sex. You don’t just go from kissing to screwing (some women do, but typically not). Usually, you need to build up from light touching, to kissing, to kissing plus roaming hands, to some clothes off and more touching, and so on.
+
+Women will often object at this point and say they just want to mess around and not have sex itself. The correct answer to any objection is always, “That’s fine. We’ll do whatever you’re comfortable doing.” The point is to have an enjoyable experience, not to get more notches on your bedpost.
+
+Yes, women often say, “We’re not going to have sex tonight,” and then go ahead and have sex. And that’s fine too. Just accept that these things are often fluid and both you and her can opt in or opt out at any time without shame or judgment.
+
+A quick note about rape because unfortunately I have to put something in here: remember, our general guideline here is that we continue until a woman makes us stop. This means she physically stops you — i.e., moves your hands off of her, moves away from you, puts her clothes back on, etc. — or clearly and verbally says, “STOP!” or “NO!”
+
+If she’s incapacitated to the point (drunk, drugs, etc.) where she probably couldn’t opt out or make a clear decision, then you should stop. End of story.
+
+Physicality is something you have to practice and become comfortable at. Every man develops his own style and personality to how he likes to touch, where he likes to touch, how he likes to move things forward. And as you develop your own style of physicality, you will begin to get a sense for when women are comfortable with what. The important thing is to see sex as not something you are earning or taking from a woman, but rather something you two are participating in together. It’s a team effort. Because, believe it or not, women want sex too. They want wild, passionate, crazy sex, just like you do.
+
+##### Sex
+
+No, seriously. Once you’ve got some clothes off and you’re both on a bed, a couch, the bathroom floor — or wherever you plan on doing the dirty — you’ve now entered the realm of foreplay. Sadly, men overlook foreplay because we’re just too damn excited about getting our dicks wet. The more foreplay there is, the hotter your woman’s going to be, the better sex she’s going to have, which means the better sex you’ll have (this is a team sport, remember?)
+
+A good place to start is by sucking and massaging her bare breasts. Some girls who like it rougher like it when you gently bite on their nipples, but be careful, not every girl is into that.
+
+From there, you should at least finger her or rub her clitoris. Feel how wet she is. If she’s wet, then slowly keep moving things forward. If she’s dry then slow down and take your time. She needs more time to get warmed up.
+
+If you enjoy giving girls oral sex, this is an excellent time to do that as well. If you give good oral sex, most girls won’t be able to resist the urge to have sex then and there (some will even grab you and make you do it).
+
+The most important thing to keep in mind about foreplay is the concept of teasing or expectation. As you do the things talked about above, don’t just rush into them and devour her. That can be cool sometimes, but in general, you want to take things slow, create a drawn-out and sensual is the concept of teasing or expectation. As you do the things talked about above, don’t just rush into them and devour her. That can be cool sometimes, but in general, you want to take things slow, create a drawn-out and sensual experience. Girls love to be teased. For instance, instead of just shoving your finger inside her and going at it, trying lightly touching her pussy with your fingertips for a few seconds. She’ll go crazy and want you inside her more than ever.
+
+Instead of just giving her oral sex, start off slow by kissing the inside of her thighs, inching closer and closer. Create expectation. Make her yearn for whatever you’re about to do to her. Stuff like this drives girls crazy and makes them incredibly horny. If you do this well and repeatedly, you’ll often get girls pushing you down and forcing you to have sex. The expectation is too much. They have to have it. Right then and there.
+
+When it comes to sex, more important than any physical technique — some cool angle or position or whatever — is being dominant. Sexual gratification for women is far more psychological than it is physical, whereas for men it’s mostly physical. A large component of this psychological satisfaction comes from being dominated and surrendering control. Women like to feel like you have the power and the control in the bedroom. They want you to be assertive and strong with what you want. So how do you become dominant in bed?”
+
+1. Be loud. Make noise. Grunt. Breathe hard. Women love this because it makes them feel like they can be loud. And when they’re loud they get off easier and more often.  
+2. Talk dirty. Tell her how sexy she is. Tell her what you’re going to do to her before you do it. Call her a dirty girl and a horny slut. This may be outside of your comfort zone, but realize that in the bedroom the rules change and logic goes out the window.  
+3. Get physical. Spank her. Pull her hair. Hold her down with one hand. When you change positions, literally pick her up and move her yourself.  
+4. Don’t ever ask, “Is this OK? Do you want to do X?” Just do it and stop later if she doesn’t like it and apologize. Nothing turns a girl off faster than a guy who defers to her too much while having sex. Take control. Do what turns you on and that will then turn her on.
+
+The most important habit to develop, by far, is to talk and be expressive in the bedroom. There has to be an open forum of communication when you sleep with a woman, especially the first few times you’re together. Sex is always somewhat awkward the first time you’re with a new person. Everybody engages in different practices, habits and prefers different things. It takes a while to learn each other’s tendencies and adapt to one another’s likes and dislikes.
+
+# Closing
+
+##### Level 1: Your Foundation (Complete 5 of 5)
+
+Join a gym: If you’re not already a member of a gym, join one. If you’re not familiar with how to work out properly, hire a personal trainer. Make this a weekly habit.
+
+“Upgrade your wardrobe: Go out and upgrade your wardrobe based on the recommendations in Chapter 8. Challenge yourself to wear nicer clothes than you’ve ever worn before. It’ll change how you feel about yourself.
+
+Get a nice haircut: Go to a salon and drop the $50 on it. It’s worth it. It makes a difference.
+
+Job security/satisfaction: This is a complicated one, but if you’re not happy with your work situation, take some time and plan a way to fix it. If you work too much, try to find a way to work less. If you’re unemployed, stop everything else and get a job.
+
+Pursue one social hobby regularly: Pick a social hobby and pursue it regularly. You may already have one, but if not, find one. It could be dance classes, public speaking courses, language courses, cooking classes, joining a band, etc. Whatever it is, make it social. That means sitting at home and perfecting your model airplanes doesn’t count.
+
+##### Level 2: Meeting Women (Complete 4 of 5)
+
+Figure out demographics: Figure out your demographics based on the recommendations in. Write down the type of women you’d like to meet and the places you enjoy going most. Then find venues or events where those two things intersect. It could be independent rock concerts, it could be art gallery showings, it could be salsa nights. Whatever it is, find your niche and pursue it.
+
+Meet 5 women in one day: Self-explanatory
+
+Meet 20 women in one week: Also self-explanatory.
+
+Join an online dating site and email 10 women: Also self-explanatory. If you’re under 30 years old, I recommend free dating sites. If you’re over 30 years old, I recommend pay sites.
+
+Sign up for a singles or speed dating event: If you have trouble doing the approaching tasks, then this may give you a needed boost in the right direction.
+
+##### Level 3: Getting to Know Women (Complete 2 of 3)
+
+Hold at least three 30-minute conversations with women you just met: Can be anywhere.
+
+Get three phone numbers from women you just met: Just ask, you’ll be surprised how many women will give them to you.
+
+Go on two dates: They can come from women you met anywhere.
+
+##### Level 4: Getting Intimate (Complete 2 of 3)
+
+Kiss two women: Make sure they’re women you’ve met since reading this book.
+
+Go on a second date with the same woman: Self-explanatory.
+
+Successfully get a woman back to your place: Usually can be done on the second date.
+
+##### Level 5: Getting Sexual (Complete 2 of 2)
+
+Have sex with a woman you’ve never had sex with before: Self explanatory
+
+Go on three first dates with new women: Self-explanatory.
+
+##### Level 6: Oh, You Mack Daddy, You (Optional)
+
+Have sex with a woman you met that same day/night: Again, recommended you do this with a woman you meet in a bar or nightclub. Bringing a woman home you meet during the day is more difficult, but not impossible.
+
+Have sex with a woman on the first date: Make sure it’s a damn good date.
+
+Kiss three women the day/night you meet them: Can be done on separate nights. Also recommended to do this at a bar or nightclub.
