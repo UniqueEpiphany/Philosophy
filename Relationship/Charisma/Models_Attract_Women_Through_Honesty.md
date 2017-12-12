@@ -1561,6 +1561,139 @@ Sadly, no. Humor is only useful if used in conjunction with leading her in a dom
 
 # Chapter 13
 
+##### The Dating Process
+
+Like it or not, the dating process follows a somewhat rigid line. Boy meets girl, asks girl on date, corresponds with girl, sets up date with girl, corresponds with girl, sets up second date with girl, repeat until eventually you bring girl home with you, and at some point you decide if you’re exclusive, non-exclusive, a casual couple, fuck buddies, soul-mates, or never want to see each other ever again.
+
+There are exceptions to this process, and the process can be sped up to a degree, but more or less, there’s a courtship process that we all follow. Our culture has silently defined a procedure for these things, and any man who wishes to be successful with women needs to be aware of the procedure.
+
+The process almost always involves the following: trading of contact details, talking through text or phone conversations, going on dates, sex, and figuring out what kind of relationship (if any) will result. Usually (but not always) in that order. In certain instances, the contact details and date can be forgone and you can bring her home (or go home with her) the day/night you meet her. But these cases are rare and usually involve meeting a woman in a party or nightclub situation which we won’t get into a whole lot of depth about.
+
+##### Phone Numbers
+
+There’s a minor obsession in men’s dating advice about phone numbers, correspondence, and so-called “text game” or “flake prevention.”
+
+Flaking is a term often used to describe a woman who gives you her phone number, says she wants to see you again, and then either never responds or returns your call, or never shows up on a date. Flakes can simply be women who never respond to you or women who respond but keep sidestepping meeting up with you.
+
+Obsessing about flakes and how to win them over is an easy trap to fall into. But in my opinion, this is treating the symptom, not the illness.
+
+The way to prevent flakes is to meet and attract women who are so interested in you that they would never consider flaking.
+
+Problem solved.
+
+In my experience, 99% of the so-called flake prevention strategies guys implement — calling at certain times, baiting with open-ended texts, pretending to send a text to the “wrong person” — these will rarely convince a girl who was never attracted to you to suddenly become attracted to you. And even if by some chance they do convince her to meet up with you, you’re now on a date with a woman who has no genuine interest being there with you.
+
+Similarly, men spend way too much time obsessing over unimportant details like how many times to text each day, how soon to call her, when to ask her out, etc. Setting rigid rules such as “wait three days to ask her out” or “never text her twice in a row,” greatly limits you and will hinder the unique connection you spent your time developing with the woman. And by the way, it’s that connection that’s going to get her out to see you again, not the clever text you spent 45 minutes coming up with.
+
+But with that said, here is my version of “The Rules” to calling and texting women:
+
+* Only ask a woman for her phone number if she seems genuinely attracted and interested in you. Only ask for her number if you can see yourself wanting to hang out with her again or having time to hang out with her again. If you meet a girl who is in town for a bachelorette party for three days, is drunk, and you have a serious meeting at work in two days, don’t bother.
+
+* When you ask her for her phone number, don’t come up with a fancy line or make up a reason. Just ask her for it. If you’re attracted to her, you shouldn’t be afraid to hide it (you’re a confident, dominant man, remember?). If she’s attracted to you, she’ll be more than excited to give it to you. Most women will always give you their number when you ask. Even if they don’t like you or have no intention of ever seeing you again, they’ll give it to you. It’s simply far easier for them to ignore calls from guys they don’t like than to reject every guy to their face.
+
+* Flakes happen to everybody. Get used to it. There are simply too many things going on in most attractive women’s lives to figure out why each one flakes. It could be because her ex-boyfriend started calling her again. It could be because she met her soul mate the day after she met you. It could be because she got in a freak accident and is in the hospital. It could be because she got sick and was bed-ridden. Sometimes women just don’t feel like dating for a while. Sometimes they don’t remember you well because they were drunk when they met you. Sometimes they lose their phone. Sometimes they just change their mind the next day. And sometimes they just don’t care enough.
+
+There are a million legitimate reasons women can flake other than then not being attracted to you. Trying to figure out which ones are flaking for legitimate reasons and which ones are not is more or less an impossible task. You’re better off just letting it go and moving on. In the end, it comes down to the fact that if she likes you enough, she’ll find a way to make it happen. If she’s not finding a way to make it happen, then she probably doesn’t like you as much as you thought she did.
+
+
+Think of it this way. If Brad Pitt texted her asking her out, do you think she could suddenly clear her busy work schedule and move her weekend plans back? I think so. If she’s not doing that for you, then she’s just not that interested.
+
+My policy with flakes is “Three strikes you’re out.” If a woman flakes once, I’ll try her a second time. If she doesn’t respond the second time, I may or may not give it a third shot, but typically if I do, I don’t put much effort into the third attempt. Often I will only try a woman once or twice. If there’s still nothing after the third attempt, I move on.
+
+A lot of women will give you excuses why they can’t meet up, cancel dates, push dates back, or simply stop responding. Sometimes they have legitimate reasons. Sometimes they’re making excuses. This is why at the first reason they give, I always give them the benefit of the doubt and try again. The second time, if I’m particularly interested in them and/or I think they genuinely have had two legitimate excuses, I will try them one more time. Often I will even tell them, “OK, last chance though.” After the third try, I just let them go. It’s not worth the time or effort at that point.
+
+I always text within 24 hours of getting her number. I send a simple text: “Hey Sara, it was nice meeting you.” That’s it. Most girls who are interested in you will respond somewhat quickly. The ones who do not respond to this will usually flake on you.
+
+From there, I usually wait another day or so and start a text conversation. I like to reference a conversation we had when we met in this text to try and keep some continuity. The goal here is nothing special, just trying to get a little bit of back and forth going. It’s been over 24 hours and I’m seeing how warm the lead still is. 
+
+Typically, if I can get a text conversation going here, then she’s pretty likely to go on a date with me. If her responses are few and far between, then she’s likely a flake.
+
+
+Don’t get fancy and try to re-invent the wheel here. Don’t get cute or try to win her over if she’s not responding very much. Your legwork was put in when you met her, now you’re stuck with what you earned. I’ve found that the cuter or harder you try to win girls over by text, the bigger chance you have of looking needy and desperate and losing them.
+
+Joke and tease her if she’s being responsive. If she’s not, stick to trying to get her out ASAP.
+
+Depending how the text conversation goes, I’ll either ask her out right then and there, or I’ll wait another day or two depending on my schedule. It used to be expected that you call women, but texting has quickly overtaken phone calls. Back in 2005 when I started this stuff, I called every number I got. Now I almost never call a girl unless she specifically asks that I call her. I would say in the last year, over 90% of my dates have been set up through texting.
+
+I have to say this again: don’t get fancy or cute in your texts. Texting is, in general, an awful medium for communication. Often if you try to get too sarcastic or witty in your texts, they can be easily misinterpreted or come off with a completely different intention than you originally had. And remember, everything comes back to intention. So clear, blunt language. I tell guys that I only use texting to organize when she and I are going to see each other next. Literally, that’s what 90% of my texts consist of, things like, “Hey, what are you doing Thursday night?” or “I’m busy this weekend, but I want to see you again.”
+
+A flake is a flake. No matter what you do. Even if you can create a temporary illusion that she wants to meet up with you.
+If anything, being cute and trying to impress her will only hurt you, as it will come across as needy and unattractive. One of the quickest ways to lose a girl is by texting her stuff that’s way too try-hard.
+
+When in doubt, be plain and to-the-point.
+
+This often disappoints some guys. They get really excited about sending fancy or brilliant texts that magically change a girl’s mind on a dime. Don’t bother. Short of lying or manipulation, it almost never works.
+
+##### The Perfect Date
+
+Despite how nervous you get beforehand, dates are perhaps the most straightforward part of this entire process. Go to the right venues, go at the right times, avoid the obvious pitfalls, and you should be in the clear.
+
+When to Go on Dates: Don’t do lunch dates, and never make an afternoon date the first date if possible. Just don’t do it. For whatever reason, nothing says, “let’s just be friends” more than having lunch together.
+
+Save dates for the nighttime. It builds a greater sense of expectation. There’s more flexibility to spend more time together. It’s more of a commitment. And neither of you are in a rush to be anywhere in an hour. It also leaves the option open for you or her sleeping over.
+
+As far as when to go, it’s going to depend a lot on what you’re doing. But you want to allow yourself time for at least three one-hour activities (more on that later). So anywhere between 6 PM to 9 PM. Later than that, and you limit your time together. Earlier than that, and you get a daytime vibe and the date will usually run out of steam before she has to go home. You want to time the date so that you are peaking together at around 10 PM or 11 PM and she has the, “I need to go home, but I don’t want to yet,” feeling.
+
+Where to Go: Absolutely no movie dates for first or second dates. Movie dates are terrible. You don’t get to talk, you sit awkwardly next to each other, and it’s impossible to touch her without being awkward.
+
+Avoid dinner dates if at all possible. They’re cliché. They can be somewhat impersonal depending on where you eat. Once again, it’s almost impossible to touch. And believe it or not, a lot of women are self-conscious about eating in front of you, food selection, etc. Also, you can avoid the awkward “who pays?” situation — which we’ll talk about in the next section.
+
+Good date locations are locations that are active, participatory, and allow for touching and flirting. Alcohol can be helpful as well if that’s your style. Some good examples include comedy clubs, dance classes, museum exhibits, walks in interesting places (plazas, parks, etc.), concerts, or just grabbing a drink somewhere.
+
+A lot of places to go will depend on your town. I recommend using Yelp.com to find interesting places around you. For instance, there used to be a bowling alley/nightclub venue near my old apartment in Boston. It was a lot of fun. You could bowl together (participatory, active, allows flirting) as well as have a few drinks, and if things went well and we were in a party mood, we could go downstairs and dance.
+
+Bars and nightclubs are fine if you both are into those kinds of venues. Just make sure that if you go, you end up there alone. A date with friends is not a date. This will often happen if she suggests a bar to go — “Oh, we can meet my friend Cindy there…” Chances are if she wants to hang out with her friend with you, then it’s no longer a date.
+
+Finally, you should find venues and activities that are close to either your place or her place. What I recommend doing is researching and finding at least 4-6 good date venues or activities that are within a short drive of your house or apartment. Even better is if you can find a few places that are within walking distance.
+
+The logic is simple: the closer the venues are to your place or hers, the less travel time necessary, the fewer logistical headaches, and the better the chance of you ending up at each other’s houses at the end of the night.
+
+Once you’ve researched and found 4-6 venues and activities near your place that you enjoy doing, that are good date activities and are easily accessible, it’s time to start putting them together and do multiple things on each date.
+
+This may sound weird to you, but this is key. Most men do dinner and then sit at the table for another hour chatting away. There’s little flirting. No activity. No touching. No sense of dynamics or change.
+
+On our dates, we are doing things — lots of things. We’re going bowling, having drinks, dancing, checking out statues in the park and carriage riding — all in three hours.
+
+There’s something strange in human psychology. Our level of intimacy with one another doesn’t just come from how much we talk about as much as it comes from the experiences we share. These dates are designed to create as much mutual experience as possible in the least amount of time possible. Here are some examples of solid dates:
+
+* Meet for coffee   
+* get ice cream down the street   
+* check out the big swing in the park   
+* shopping together at quirky bookstore  
+* Salsa class   
+* drinks next door afterward   
+* walk to neighborhood pizza place   
+* video games at your place  
+* Window shopping at local shopping center   
+* improv comedy show   
+* quick dinner afterward   
+* walk around local park  
+
+Include dancing if at all possible, as it’s the most sexual date activity you can have. Also, if you two decide to drink, try to drink at the second or last venues/activities. You don't ever want to end up hammered on a date.
+
+How to Behave on a Date: As I mentioned before, you want your dates to be interactive. You want to be able to walk around, be able to touch and be as interactive as possible.
+
+The underlying concept to have on a date is that you should try to constantly be leading.
+
+Every decision should be yours and she should be expected to follow it. Remove, “What do you want to do now?” from your dating vocabulary. Never say it again.
+
+It should be like this: “Hey, let’s grab some tacos, I know a cool stand over here,” “I got an idea, I’m going to kick your ass in air hockey,” “Let’s check out the Science museum, they have an awesome exhibit on the human body,” etc.
+
+As far as what to talk about, your conversations should be getting deeper and more personal. There should be less teasing and playful banter and more conversations about your lives and what’s important to you. Learn about her past, her passions, her dreams, what her favorite things are.
+
+At the same time, you don’t want to turn this into a job interview (which too many dinner dates turn into), but elicit these topics by sharing them yourself.
+
+Finally, the big question in our post-feminism world: who pays? These days, most women will offer to pay out of politeness, but you’re supposed to turn them down because it’s the gentleman thing to do (or something like that). Look, I didn’t make this stuff up, but after being on probably 100+ dates with dozens of women, and getting into more than a few awkward situations about paying, this is what works for me: pay unless she physically pulls out her wallet/credit card and stops you. Until she physically does that, just pay.
+
+Yes, once in a while you can get women buying you drinks and stuff — there are even ways to influence them to do this — but at the end of the day, unless you’re broke, take care of them. It’s a no-lose move and it will win you points with many of them.
+
+# Chapter 14
+
+##### Physicality and Sex
+
+
+
+
 
 
 
