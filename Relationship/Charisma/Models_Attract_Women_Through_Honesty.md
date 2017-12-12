@@ -1526,3 +1526,43 @@ In conclusion: When it comes to conversations, there’s a lot to cover. Reading
 
 ##### Humor
 
+There’s an old saying, if you can make a woman laugh then you can get her to laugh right into bed. Now, although humor is not a cure-all for anybody’s dating problems, it’s definitely important. In fact, in many surveys of what women look for most in a man, “sense of humor” is almost always at the top of that list.
+
+The reason is that a strong sense of humor conveys all of the attractive traits of your identity to a woman. A man who can laugh easily at the world and who isn’t afraid to laugh at himself conveys a sense of non-neediness. He also makes women feel good around him and, therefore, more secure. A man who is very serious and unable to laugh at himself or the world conveys that he is heavily invested in the perceptions of the world around him and is therefore needy.
+
+Your specific type of sense of humor isn’t so important as much as that you have it. Obviously, different women will respond strongly to different types of humor, but this is less a function of your ability to tell jokes and more a function of demographics. Sarcastic women will like sarcastic men. Silly women will like silly men, and so on. Focus on what you find funny to you personally, and don’t be afraid to share that with the women you meet. If they laugh, then great! If they don’t, then chances are it wasn’t going to work anyway.
+
+At its core, humor is the art of drawing connections between two seemingly unrelated ideas or objects. There are a number of ways to do this, but at its core, humor is a creative activity and, therefore, will greatly be tied to your ability to uninhibitedly express yourself.
+
+Sometimes your jokes will fall flat, particularly when you’re starting out. That’s OK. Don’t laugh at yourself. Don’t make fun of yourself. Don’t try to explain the joke. These are all needy responses that are dependent on others’ perceptions of yourself rather than your own. Sometimes jokes are bad or unfunny. That’s fine. Just move on.
+
+In this section, I’ll give a brief overview of a few types of humor: misdirection, exaggeration, sarcasm, wordplay, and roleplaying.
+
+* Misdirection: One of the most common and easiest forms of humor is misdirection. Misdirection occurs when you begin to say something or tell a story that leads the listener to believe you’re making one point, and then out of nowhere you say something completely different. 
+
+* Exaggeration: Exaggeration is another mainstay of humor and something that everyone should be able to use. Exaggeration is when you take a quality about something, and blow it completely out of proportion, often in a creative or interesting way. Typically, the more creative and extreme you are in describing your exaggeration, the funnier it will be. 
+
+* Teasing and Sarcasm: Whereas misdirection and exaggeration are funny to just about anybody, you’ll run into a minority of women who don’t find teasing or sarcasm funny. Teasing and sarcasm can also vary in degrees of appropriateness, especially depending on where you are. If you’re at a funeral, it’s probably not a good idea to make sarcastic comments about the deceased’s family. Teasing is when you make humorous comments that are derogatory about someone. Generally, teasing is done in good humor and with good intentions. Teasing with bad intentions becomes insulting and is not welcome by most people.
+Teasing is supposed to be fun. The ideal tease will create a mixture of emotions in a girl: defensiveness yet happiness. The ideal reaction is when a girl will say, “Oh my god, I can’t believe you said that,” but will be laughing at the same time and smiling. Be careful with teases, especially to women you don’t know. Teasing polarizes, often hard and quickly. Therefore, it’s a good tactic, but not always exactly pleasant.
+
+* The Role of Swearing: Swearing and dirty language has an interesting role in humor. Many types of humor, such as sarcasm and exaggeration require a certain level of edginess to pack a powerful punch. Using dirty language or swear words is kind of a cheap and easy way to make whatever you say more extreme. For instance, adding the word “fucking” into just about any humorous statement will make it pack a little more of a punch. At the same time, using swear words is kind of a shortcut, and if you use them too often, they’ll get old quickly and sound try-hard. Dropping a well-timed F-bomb can make a funny joke even funnier. But dropping an F-bomb into everything you say just makes you look unsophisticated.Generally, the older you are, the more I recommend avoiding dirty language. Use it sparingly and only use it when you have a specific reason to. The more you use it, the more attention-seeking and negative you will make yourself appear, both of which are unattractive traits.
+
+* Wordplay and Puns: Wordplay is similar to misdirection in that the listener expects one type of meaning and gets another, but wordplay practices misdirection by using words that have various meanings.
+
+* Roleplaying and Games: Games and roleplaying are quick and easy ways to inject fun into any interaction with a woman. They’re playful. And they open up plenty of opportunities for other types of humor when you use them.
+
+Also, beware of falling into the trap of self-deprecating humor. A lot of men, particularly needy men who are highly invested in other people’s reactions around them, will make fun of themselves and put themselves down in order to get a laugh.
+
+Although this may make women laugh, when used in excess, it’s a needy behavior because you’re sacrificing your own self-perception for the sake of others’ amusement. Therefore, it’s ultimately unattractive. Guys with a good sense of humor who habitually use it on themselves, I recommend turning those same jokes and thoughts onto the women you’re talking to. Instead of making fun of yourself, make fun of her. It may feel uncomfortable at first, but you’ll be surprised at how it will blow your interactions wide open and infuse more sexuality and playfulness into them.
+
+Humor is not a cure-all for your problems with attracting and seducing women (if there were a cure-all, it’d be physicality; Chapter 14). Some naturally funny men overly rely on their ability to make a girl laugh and actually overdo it. Instead of being attractive and strong men, they become entertainers constantly seeking attention and validation. The worst part about this habit is that it all happens while making the woman laugh and making her enjoy your company. So a lot of men get confused and actually think that they’re seducing her. She’s smiling. She’s laughing. She likes me. She must be sexually attracted to me, right?
+
+Sadly, no. Humor is only useful if used in conjunction with leading her in a dominant manner and pushing things physically with her. Ultimately, you aren’t ever really attracting a woman unless you’re connecting with her physically and emotionally. And although humor is a very useful tool to help you do that, it doesn’t actually do it for you.
+
+# Chapter 13
+
+
+
+
+
+
