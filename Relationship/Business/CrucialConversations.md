@@ -534,6 +534,90 @@ Spot the story by watching for "hot" words. Here's another tip. To avoid confusi
 
 ##### Watch for Three "Clever" Stories
 
+As we begin to piece together why people are doing what they're doing (or equally important, why we're doing what we're doing) , with time and experience we become quite good at coming up with explanations that serve us well. Either our stories are completely accurate and propel us in healthy directions, or they're quite inaccurate but j ustify our current behavior-making us feel good about ourselves and calling for no need to change. It's the second kind of story that routinely gets us into trouble. For example, we move to silence or violence, and then we come up with a perfectly plausible reason for why it's okay. "Of course I yelled at him. Did you see what he did? He deserved it." "Hey, don't be gi"ing me the evil eye. I had no other choice." We call these imaginative and self-serving concoctions "clever stories." They're clever because they allow us to feel good about behaving badly. Better yet, they allow us to feel good about behaving badly even while achieving abysmal results.Among all of the clever stories we tell, here are the three most common.
+
+##### Victim Stories- lilt's Not My Fault"
+
+The first of the clever stories is a Victim Story. Victim Stories, as you might imagine, make us out to be innocent sufferers. The theme is always the same. The other person is bad and wrong, and we are good and right. Other people do bad things, and we suffer as a result. In truth, there is such a thing as an innocent victim. You're stopped in the street and held up at gunpoint. When an event such as this occurs, it's a sad fact, not a story. You are a victim. But all tales of victimization are not so one-sided. When you tell a Victim Story, you ignore the role you played in the problem. You tell your story in a way that judiciously avoids facts about whatever you have done (or neglected to do) that might have contributed to the problem.
+
+For instance, last week your boss took you off a big project, and it hurt your feelings. You complained to everyone about how bad you felt. Of course, you failed to let your boss know that you were behind on an important project, leaving him high and dry-which is why he removed you in the first place. This part of the story you leave out because, hey, he made you feel bad. To help support your Victim Stories you speak of nothing but your noble motives. "I took longer because I was trying to beat the standard specs." Then you tell yourself that you're being punished for your virtues, not your vices. "He just doesn't appreciate a person with my superb attention to detail." (This added twist turns you from victim into martyr. What a bonus ! )
+
+##### Villain Stories - "It's All Your Fault"
+
+We create these nasty little tales by turning normal, decent human beings into villains. We impute bad motive, and then we tell everyone about the evils of the other party as if somehow we're doing the world a huge favor. For example, we describe a boss who is zealous about quality liS a control freak. When our spouse is upset that we didn't keep a commi tment, we see him or her as inflexible and stubborn. In Vict im Stories we eX􀇪lggcrate our own innocence. In Vil lain Stories we overemphasize the other person's guilt. We automatically assume the worst possible motives while ignoring any possible good or neutral intentions a person may have. Labeling is a common device in Villain Stories. For example, "I can't believe that bonehead gave me bad materials again." By employing the handy label, we are now dealing not with a complex human being, but with a bonehead. Not only do Villain Stories help us blame others for bad results, but they also set us up to then do whatever we want to the "villains." After all, we can feel okay insulting or abusing a bonehead-whereas we might have to be more careful with a living, breathing person. Then when we fail to get the results we really want, we stay stuck in our ineffective behavior because, after all, look who we're dealing with!
+
+
+Watch for the double standard. When you pay attention to Victim and Villain Stories and catch them for what they areunfair characterizations-you begin to see the terrible double standard we use when our emotions are out of control. When we make mistakes, we tell a Victim Story by claiming our intentions were innocent and pure. "Sure 1 was late getting home and didn't call you, but I couldn't let the team down! " On the other hand, when others do things that hurt us, we tell Villain Stories in which we invent terrible motives for others based on how their actions affected us. "You are so thoughtless! You could have called me and told me you were going to be late."
+
+##### Helpless Stories- "There's Nothing Else I Can Do"
+
+Finally come Helpless Stories. In these fabrications we make ourselves out to be powerless to do anything. We convince ourselves that there are no healthy alternatives for dealing with our predicament, which justifies the action we're about to take. A Helpless Story might suggest, "If 1 didn't yell at my son, he wouldn't listen." Or on the flip side, "If I told my husband this, he would just be defensive." While Villian and Victim Stories look back to explain why we're in the situation we're in, Helpless Stories look forward to explain why we can't do anything to change our situation. It's particularly easy to act helpless when we tum others' behavior into fixed and unchangeable traits. For example, when we decide our boss is a "control freak" (Villain Story), we are less inclined to give him feedback because, after all, control freaks like him don't accept feedback (Helpless Story). Nothing we can do will change that fact. As you can see, Helpless Stories often stem from Villain Stories and typically offer us nothing more than Sucker's Choices.
+
+##### Why We Tell Clever Stories
+
+They match reality. Sometimes the stories we tell are accurate. The other person is trying to cause us harm, we are innocent victims, or maybe we really can't do much about the problem. It can happen. It's not common, but it can happen. They get us off the hook. More often than not, our conclusions transform from reasonable explanations to clever stories when they conveniently excuse us from any responsibility-when, in reality, we have been partially responsible. The other person isn't bad and wrong, and we aren't right and good. The truth lies somewhere in the middle. However, if we can make others out as wrong and ourselves out as right, we're off the hook. Better yet, once we've demonized others, we can even insult and abuse them if we want.
+
+Clever stories keep us from acknowledging our own sellouts. By now it should be clear that clever stories cause us problems. A reasonable question at this point is, "If they're so terribly hurtful , why do we ever tell clever stories?" Our need to tell clever stories often starts with our own sellouts. l ,ike i t or not, we usually don't begin telling stories that justify our ad ions u n ti l we have done something that we feel a need to justify.
+
+We sell out when we consciously act against our own sense of what's right. And after we've sold out, we have only two choices: own up to our sellout, or try to justify it. And if we don't admit to our errors, we inevitably look for ways to justify them. That's when we begin to tell clever stories.
+
+Even small sellouts like these get us started telling clever stories. When we don't admit to our own mistakes, we obsess about others' faults, our innocence, and our powerlessness to do anything other than what we're already doing. We tell a clever story when we want self-justification more than results. Of course, self-justification is not what we really want, but we certainly act as if it is.
+
+##### Tell the Rest of the Story
+
+Once we've learned to recognize the clever stories we tell ourselves, we can move to the final Master My Stories skill. The dialogue- smart recognize that they're telling clever stories, stop, and then do what it takes to tell a useful story. A useful story, by definition, creates emotions that lead to healthy action-such as dialogue. And what transforms a clever story into a useful one? The rest of the story. That's because clever stories have one characteristic in common: They're incomplete. Clever stories omit crucial information about us, about others, and about our options. Only by including all of these essential details can clever stories be transformed into useful ones.
+
+What's the best way to fill in the missing details? Quite simply, it's done by turning victims into actors, villains into humans, and the helpless into the able. Here's how. Turn victims into actors . If you notice that you're talking about yourself as an innocent victim (and you weren't held up at gunpoint) , ask: Am I pretending not to notice my role in the problem?
+
+This question jars you into facing up to the fact that maybe, just maybe, you did something to help cause the problem. Instead of being a victim, you were an actor. This doesn't necessarily mean you had malicious motives. Perhaps your contribution was merely a thoughtless omission. Nonetheless, you contributed. For example, a coworker constantly leaves the harder or noxious tasks for you to complete. You've frequently complained to friends and loved ones about being exploited. The parts you leave out of the story are that you smile broadly when your boss compliments you for your willingness to take on challenging jobs, and you've never said anything to your coworker. You've hinted, but that's about it.
+
+The first step in telling the rest of this story would be to add these important facts to your account. By asking what role you've played, you begin to realize how selective your perception has been. You become aware of how you've minimized your own mistakes while you've exaggerated the role of others. Turn villains into humans. When you find yourself labeling or otherwise vilifying others, stop and ask: Why would a reasonable, rational, and decent person do what this person is doing?
+
+This particular question humanizes others. As we search for plausible answers to it, our emotions soften. Empathy often replaces judgment, and depending upon how we've treated others, personal accountability replaces self-justification. For instance, that coworker who seems to conveniently miss out on the tough j obs told you recently that she could see you were struggling with an important assignment, and yesterday ( while you were tied up on a pressing task) she pitched in and completed the job for you. You were instantly suspicious. She W'lS trying to make you look bad by completing a high-profile jub. Huw dare she prctcnd to be helpful when her real goal was to discredit you while tooting her own hom! Well, that's the story you've told yourself.
+
+But what if she really were a reasonable, rational, and decent person? What if she had no motive other than to give you a hand? Isn't it a bit early to be vilifying her? And if you do, don't you run the risk of ruining a relationship? Might you go off halfcocked, accuse her, and then learn you were wrong? Our purpose for asking why a reasonable, rational, and decent person might be acting a certain way is not to excuse others for any bad things they may be doing. If they are, indeed, guilty, we'll have time to deal with that later. The purpose of the humanizing question is to deal with our own stories and emotions. It provides us with still another tool for working on ourselves first by providing a variety of possible reasons for the other person's behavior.
+
+In fact, with experience and maturity we learn to worry less about others' intent and more about the effect others' actions are having on us. No longer are we in the game of rooting out unhealthy motives. And here's the good news. When we reflect on alternative motives, not only do we soften our emotions, but equally important, we relax our absolute certainty long enough to allow for dialogue-the only reliable way of discovering others' genuine motives. Turn the helpless into the able. Finally, when you catch yourself bemoaning your own helplessness, you can tell the complete story by returning to your original motive. To do so, stop and ask: What do I really want? For me? For others? For the relationship? Then, kill the Sucker's Choice that's made you feel helpless to choose anything other than silence or violence. Do this by asking:  What would I do right now if I really wanted these results?
+
+### SUMMARY- MASTER MY STORIES
+
+If strong emotions are keeping you stuck in silence or violence,
+try this.  
+
+##### Retrace Your Path
+
+Notice your behavior. If you find yourself moving away from dialogue, ask yourself what you're really doing. 
+
+* Am I in some form of silence or violence? Get in touch with your feelings. Learn to accurately identify the emotions behind your story.   
+* What emotions are encouraging me to act this way? Analyze your stories. Question your conclusions and look for other possible explanations behind your story.   
+* What story is creating these emotions? Get back to the facts. Abandon your absolute certainty by distinguishing between hard facts and your invented story.   
+* What evidence do I have to support this story? Watch for clever stories. Victim, Villain, and Helpless Stories sit at the top of the list.  
+
+##### Tell the Rest of the Story
+
+Ask:
+
+* Am I pretending not to notice my role in the problem?  
+* Why would a reasonable, rational, and decent person do this?  
+* What do I really want?   
+* What would I do right now if I really wanted these results?   
+
+# Chapter 7
+
+##### STATE My Path : How to Speak Persuasivel Not Abrasively
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
