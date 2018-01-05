@@ -8,9 +8,7 @@ __I believe that the best way to improve your self-control is to see how and why
 
 Self-knowledge-especially of how we find ourselves in willpower trouble-is the foundation of self-control. This is why both “The Science of Willpower" course and this book focus on the most common willpower mistakes we all make. Each chapter dispels a common misconception about self-control and gives you a new way to think about your willpower challenges. For every willpower mistake, we ll conduct a kind of autopsy: When we give in to temptation or put off what we know we should do, what leads to our downfall? What is the fatal error, and why do we make it? Most important, we will look for the opportunity to save our future selves from this fate. How can we turn the knowledge of how we fail into strategies for success?
 
-# ONE
-
-### I Will, I Won’t, I Want: What Willpower Is, and Why It Matters
+# Chapter ONE : I Will, I Won’t, I Want: What Willpower Is, and Why It Matters
 
 
 But saying no is just one part of what willpower is, and what it requires. After all, “Just say no” are the three favorite words of procrastinators and coach potatoes worldwide. At times, it's more important to say yes. All those things you put off for tomorrow (or forever)? Willpower helps you put them on today’s to-do list, even when anxiety , distractions, or a reality TV show marathon threaten to talk you out of it. Think of it as “I will” power—the ability to do what you need to do, even if part of you doesn't want to.
@@ -52,11 +50,24 @@ It doesn't take a lifetime of meditation to change the brain. Some researchers h
 
 The Idea: Willpower is actually three powers—I will, I won't, and I want—that help us to be a better version of ourselves.
 
-# TWO
+# Chapter TWO : The Willpower Instinct: Your Body Was Born to Resist Cheesecake
 
+Science is discovering that self-control is a matter of physiology, not just psychology. It’s a temporary state of both mind and body that gives you the strength and calm to override your impulses. Researchers are beginning to understand what that state looks like, and why the complexity of our modern world often interferes with it. The good news is that you can learn to shift your physiology into that state when you need your willpower the most. You can also train the body’s capacity to stay in this state, so that when temptation strikes, your instinctive response is one of self-control.
 
+### WHEN DANGER STRIKES
 
+Here’s what happened, physiologically, when you spotted that saber-toothed tiger: The information from your eyes first made its way to an area of the brain called the amygdala, which functions as your own personal alarm system. This alarm system sits in the middle of your brain and lives to detect possible emergencies. When it notices a threat, its central location makes it easy to get the message out to other areas of your brain and body. When the alarm system got the signal from your eyeballs that there was a saber-toothed tiger eyeing you, it launched a series of signals to your brain and body that prompted the fight-or-flight response. Stress hormones were released from your adrenal glands. Energy—in the form of fats and sugar—was released into your bloodstream from your liver. Your respiratory system got your lungs pumping to fuel the body with extra oxygen. Your cardiovascular system kicked into high gear to make sure the energy in your bloodstream would get to the muscles doing the fighting or the fleeing. Every cell in your body got the memo: time to show what you’re made of.
 
+While your body was getting ready to defend your life, the alarm system in your brain was busy trying to make sure that you didn’t get in the body’s way. It focused your attention and senses on the saber-toothed tiger and your surroundings, making sure no stray thoughts distracted you from the threat at hand. The alarm system also prompted a complex change in brain chemicals that inhibited your prefrontal cortex, the area of the brain in charge of impulse control. That’s right, the fight-or-flight response wants to make you more impulsive. The rational, wise, and deliberative prefrontal cortex is effectively put to sleep—the better to make sure you don’t chicken out or overthink your escape. 
 
+The fight-or-flight response is one of nature’s greatest gifts to mankind: the built-in ability of your body and brain to devote all of their energy to saving your butt in an emergency. You aren’t going to waste energy—physical or mental—on anything that doesn’t help you survive the immediate crisis. So when the fight-or-flight response takes over, the physical energy that might a moment ago have been devoted to digesting your morning snack or repairing a hangnail is redirected to the task of immediate self-preservation. Mental energy that was focused on finding your dinner or planning your next great cave painting is rechanneled into present-moment vigilance and rapid action. In other words, the fight-or-flight stress response is an energy-management instinct. It decides how you are going to spend your limited physical and mental energy.
 
+### A NEW KIND OF THREAT
 
+What’s going on in the brain and body now? A few things. First, your brain is temporarily taken over by the promise of reward. At the sight of that strawberry cheesecake, your brain launches a neurotransmitter called dopamine from the middle of your brain into areas of the brain that control your attention, motivation, and action. Those little dopamine messengers tell your brain, “Must get cheesecake NOW, or suffer a fate worse than death.” This might explain the near-automatic movement of your feet and hands into the bakery. 
+
+While all this is happening, your blood sugar drops. As soon as your brain anticipates your mouth’s first creamy bite, it releases a neurochemical that tells the body to take up whatever energy is circulating in the bloodstream. The body’s logic is this: A slice of cheesecake, high in sugar and fat, is going to produce a major spike in blood sugar. To prevent an unsightly sugar coma and the rare (but never pretty) death by cheesecake, you need to lower the sugar currently in the bloodstream. How kind of the body to look out for you in this way! But this drop in blood sugar can leave you feeling a little shaky and cranky, making you crave the cheesecake even more. 
+
+This time, the enemy is within. You don’t need to flee the bakery (although it might not hurt). And you definitely don’t need to kill the cheesecake (or the baker). But you do need to do something about those inner cravings. You can’t exactly kill a desire, and because the cravings are inside your mind and body, there’s no obvious escape. The fight-or-flight stress response, which pushes you toward your most primitive urges, is exactly what you don’t need right now. Self-control requires a different approach to self-preservation—one that helps you handle this new kind of threat.
+
+### THE WILLPOWER INSTINCT: PAUSE AND PLAN
