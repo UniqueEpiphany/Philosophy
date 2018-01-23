@@ -11,3 +11,5 @@ Usually, only when all three parts of this process are fulfilled can a movement 
 
 In general, sociologists say, most of us have friends who are like us. We might have a few close acquaintances who are richer, a few who are poorer, and a few of different races—but, on the whole, our deepest relationships tend to be with people who look like us, earn about the same amount of money, and come from similar backgrounds.
 
+Movements don’t emerge because everyone suddenly decides to face the same direction at once. They rely on social patterns that begin as the habits of friendship, grow through the habits of communities, and are sustained by new habits that change participants’ sense of self.
+
