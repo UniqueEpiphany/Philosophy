@@ -1,0 +1,20 @@
+# Active Reading
+
+Since reading of any sort is an activity, all reading must to some degree be active. Completely passive reading is impossible; we cannot read with our eyes immobilized and our minds asleep. Hence when we contrast active with passive reading, our purpose is, first, to call attention to the fact that reading can be more or less active, and second, to point out that the more active the reading the better. One reader is better than another in proportion as he is capable of a greater range of activity in reading and exerts more effort. He is better if he demands more of himself and of the text before him.
+
+Though, strictly speaking, there can be no absolutely passive reading, many people think that, as compared with writing and speaking, which are obviously active undertakings, reading and listening are entirely passive. The writer or speaker must put out some effort, but no work need be done by the reader or listener. Reading and listening are thought of as receiving communication from someone who is actively engaged in giving or sending it. The mistake here is to suppose that receiving communication is like receiving a blow or a legacy or a judgment from the court. On the contrary, the reader or listener is much more like the catcher in a game of baseball.
+
+Catching the ball is just as much an activity as pitching or hitting it. The pitcher or batter is the sender in the sense that his activity initiates the motion of the ball. The catcher or fielder is the receiver in the sense that his activity terminates it. Both are active, though the activities are different. If anything is passive, it is the ball. It is the inert thing that is put in motion or stopped, whereas the players are active, moving to pitch, hit, or catch. The analogy with writing and reading is almost perfect. The thing that is written and read, like the ball, is the passive object common to the two activities that begin and terminate the process.
+
+We can take this analogy a step further. The art of catching is the skill of catching every kind of pitch—fast balls and curves, changeups and knucklers. Similarly, the art of reading is the skill of catching every sort of communication as well as possible.
+
+It is noteworthy that the pitcher and catcher are successful only to the extent that they cooperate. The relation of writer and reader is similar. The writer isn’t trying not to be caught, although it sometimes seems so. Successful communication occurs in any case where what the writer wanted to have received finds its way into the reader’s possession. The writer’s skill and the reader’s skill converge upon a common end.
+
+Admittedly, writers vary, just as pitchers do. Some writers have excellent “control”; they know exactly what they want to convey, and they convey it precisely and accurately. Other things being equal, they are easier to “catch” than a “wild” writer without “control.”
+
+There is one respect in which the analogy breaks down. The ball is a simple unit. It is either completely caught or not. A piece of writing, however, is a complex object. It can be received more or less completely, all the way from very little of what the writer intended to the whole of it. The amount the reader “catches” will usually depend on the amount of activity he puts into the process, as well as upon the skill with which he executes the different mental acts involved.
+
+What does active reading entail? We will return to this question many times in this book. For the moment, it suffices to say that, given the same thing to read, one person reads it better than another, first, by reading it more actively, and second, by performing each of the acts involved more skillfully. These two things are related. Reading is a complex activity, just as writing is. It consists of a large number of separate acts, all of which must be performed in a good reading. The person who can perform more of them is better able to read.
+
+# The Goals of Reading: Reading for Information and Reading for Understanding
+
