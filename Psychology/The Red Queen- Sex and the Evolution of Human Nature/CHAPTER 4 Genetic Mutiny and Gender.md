@@ -1,4 +1,4 @@
-CHAPTER 4 Genetic Mutiny and Gender
+
 
 The tragedy of the commons is, for economists, a matter of ownership. The lack of a single ownership of the commons or the fishery means that everybody shares equally in the cost of overgrazing or overfishing. But the individual who grazes one too many cows, or the fisherman who catches one too many netfuls, still gets the whole of the reward of that cow or netful. So he reaps the benefits privately and shares the costs publicly. It is a one-way ticket to riches for the individual and a one-way ticket to poverty for the village. Individually rational behaviour leads to a collectively irrational outcome. The free-rider wins at the expense of the good citizen.
 
@@ -26,7 +26,19 @@ They have. It is called conjugation, and it is widely agreed to be a form of sex
 
 ### Nobody is Descended from Abel
 
+The greatest opportunity for selfish genes comes during sex. Most animals and plants are diploid: their genes come in pairs. But diploidy is an uneasy partnership between two sets of genes and when partnerships end, things often get acrimonious. The partnerships end with sex. During meiosis, the central genetic procedure of sex, the paired genes are separated to make haploid sperm and eggs. Suddenly each gene has an opportunity to be selfish at its partner’s expense. If it can monopolize the eggs or sperm, it thrives and its partner does not.
+
+This opportunity has been explored in recent years by a group of young biologists, prominent among them Steve Frank, of the University of California at Irvine, and Laurence Hurst, Andrew Pomiankowski, David Haig and Alan Grafen at Oxford University. Their logic goes like this. When a woman conceives, her embryo gets only half of her genes. They are the lucky ones; the unlucky other half languish in obscurity in the hope of another toss of the coin when she next breeds. For, to recapitulate, you have 23 pairs of chromosomes, 23 from your father and 23 from your mother. When you make an egg or a sperm you will pick one from each pair to give a total of 23 chromosomes. You could give it all the ones you inherited from your mother or all the ones from your father, or more likely a mixture of the two. Now a selfish gene that loaded the dice so that it stood a better than fifty-fifty chance of getting into the embryo might do rather well. Suppose it simply killed off its opposite number, the one that came from the other grandparent of the embryo.
+
+Meiotic-drive genes are known from flies and mice and a few other creatures, but they are rare. Why? For the same reason that murder is rare. The interest of the other genes has been reasserted through laws. Genes, like people, have other things to do than kill each other. Those genes that shared Abel’s chromosome and died with him would have survived had they invented some technique to foil Cain. Or, to put it another way, genes that foil meiotic drivers will spread as surely as meiotic drivers will spread. A Red Queen race is the result.
+
+Cain genes survive in mice and flies by hugging their masks close to them so that they are not likely to be parted by crossing over. But there is one pair of chromosomes that is especially plagued by Cain genes – the ‘sex chromosomes’, which do not engage in crossing over. In people and many other animals gender is determined by genetic lottery. If you receive a pair of X chromosomes from your parents you become a female; if you receive an X and a Y you become a male (unless you are a bird, spider or butterfly, in which case it is the other way round). Because Y chromosomes contain the genes for determining maleness, they are not compatible with Xs and they do not cross over with them. Consequently, a Cain gene on an X chromosome can safely kill the Y chromosome and not risk suicide. It biases the sex ratio of the next generation in favour of females, but that is a cost borne by the whole population equally, whereas the benefit of monopolizing the offspring is received by the Cain gene itself – just as in the case of free-riders causing the tragedy of the commons.
+
+### “In Praise of Unilateral Disarmament”
+
 Excerpt From: Matt Ridley. “THE RED QUEEN.” iBooks. 
+
+
 
 Excerpt From: Matt Ridley. “THE RED QUEEN.” iBooks. 
 
